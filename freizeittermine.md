@@ -8,7 +8,7 @@ title: Termine
 
 Skifreizeit in Wiedhölzlkaser/Reit im Winkl
 
-![reit](/images/reit.jpeg)
+![Reit](/images/reit.jpeg)
 
 Freizeit von Gerti
 
