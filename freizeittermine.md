@@ -4,19 +4,6 @@ title: Termine
 ---
 # FREIZEITTERMINE
 
-26.12.2015 - 03.01.2016
-
-Silvester in Blankenheim/Eifel
-
-![blankenheim](/images/blankenheim.jpeg)
-
-Freizeit vom Selbsthilfe Freizeitwerk e.V.
-
-[2015 Silvesterfreizeit Blankenheim.pdf](/pdf/SilvesterfreizeitBlankenheim2015.pdf)
-PDF-Dokument [113.5 KB]
-
------------------------------------------------------------------------------
-
 27.12.2015 - 04.01.2016
 
 Silvester in der Schaippachmühle
