@@ -4,19 +4,6 @@ title: Termine
 ---
 # FREIZEITTERMINE
 
-27.12.2015 - 04.01.2016
-
-Silvester in der Schaippachmühle
-
-![schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[2015/16 Erich Weihnachtsfreizeit.pdf](/pdf/ErichWeihnachtsfreizeit2015.pdf)
-PDF-Dokument [1.3 MB]
-
----------------------------------------------------------------------------
-
 28.02. - 06.03.2016
 
 Skifreizeit in Wiedhölzlkaser/Reit im Winkl
