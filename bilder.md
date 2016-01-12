@@ -50,6 +50,10 @@ Niederalfingen 2004
 
 Agadir 2003
 
+![Bayerischer Wald 2000](/images/BayerischerWald2000.png)
+
+BayerischerWald Villa Kunterbunt 2000
+
 ![Höchstenbach 1999](/images/Höchstenbach1999.jpeg)
 
 Höchstenbach 1999

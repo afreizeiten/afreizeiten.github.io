@@ -60,6 +60,10 @@ am 5. - 8. Februar 2016
 
 <http://www.ea-selbsthilfe.net/aktuelles>
 
+### EA Ländertreffen mit Gruppensprecherversammlung
+
+vom 12.-14.08.16 in Marburg in der Jugendherberge
+
 ### EKS - Ländertreffen Winter 2016
 vom 15. - 17. Januar 2016
 
@@ -81,7 +85,7 @@ vom 30. Oktober - 1.November 2015
 
 vom 11.- 13. März 2016
 
-vom 14.- 16. Oktober 2016
+vom 7.- 9. Oktober 2016
 
 Bitte beachten: 4.-6.3.16 ist verschoben auf 11.-13.3.16
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
@@ -90,8 +94,8 @@ auch für die, die schon dabei waren:
 bitte auch noch mal sorgfältig neu lesen, wegen der Neuerungen
 
 weitere Infos hier:
-[MINIFREIZEITEN 2015+16.pdf](/pdf/MINIFREIZEITEN2015+16.pdf)
-PDF-Dokument [106.2 KB]
+[MINIFREIZEITEN 2016.pdf](/pdf/MINIFREIZEITEN2016.doc.pdf)
+PDF-Dokument [168 KB]
 
 ### MINI-FREIZEIT IN BLUMENTHAL
 von Mechtild und Ulrike
@@ -120,5 +124,3 @@ Am Sonnenhang 13,
 <a.fischer@fischerskfzwerkstatt.de>
 
 Tel: 0151 27237547
-
-
