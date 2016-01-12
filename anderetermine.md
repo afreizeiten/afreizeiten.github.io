@@ -46,12 +46,6 @@ Wo: Köln, Osho-Place, Venloer St. 2
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
-### EA-Wochenende Münster
-
-am 5. + 6. Dezember 2015
-
-<http://www.ea-selbsthilfe.net>
-
 ### EA-Wochenende in Fulda
 
 "Ich und Du sind Wir"
@@ -80,8 +74,6 @@ vom 2. und 4. Sa. im Monat 17 - 19h
 [Flyer Kölner Komitee.pdf](/pdf/FlyerKölnerKomitee.pdf)
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN
-
-vom 30. Oktober - 1.November 2015
 
 vom 11.- 13. März 2016
 
