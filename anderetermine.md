@@ -58,13 +58,6 @@ am 5. - 8. Februar 2016
 
 vom 12.-14.08.16 in Marburg in der Jugendherberge
 
-### EKS - Ländertreffen Winter 2016
-vom 15. - 17. Januar 2016
-
-Jugendherberge Friedrichshafen
-
-<http://www.eksev.org/Termine.htm>
-
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
 ### Kölner Komitee für Ehemalige aus 12- Schritte - Kliniken
