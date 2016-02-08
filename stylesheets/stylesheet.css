@@ -58,7 +58,7 @@ a {
       margin-left: 0; } }
 
 .page-header {
-  color: #fff;
+  color: #6FB65B;
   text-align: center;
   background-color: #F2F4BA;
  }
@@ -75,7 +75,8 @@ a {
     text-align: left;
   }
   h1.title {
-    font-size: 4em;
+    font-size: 5em;
+    color: #6FB65B;
     font-family: 'Caudex', serif;
     padding-left: 200px;
     text-align: left;
@@ -131,7 +132,7 @@ a {
   margin-top: 2rem;
   margin-bottom: 1rem;
   font-weight: normal;
-  color: #F2F4BA; }
+  color: #6FB65B; }
 .main-content p {
   margin-bottom: 1em; }
 .main-content pre {
