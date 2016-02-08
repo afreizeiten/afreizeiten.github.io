@@ -10,6 +10,7 @@ body {
   color: #606c71; }
 nav > a {
   font-family: 'Caudex', serif;
+  font-size: 2em;
   color: white;
 }
 a {
@@ -75,6 +76,7 @@ a {
   }
   h1.title {
     font-size: 4em;
+    font-family: 'Caudex', serif;
     padding-left: 200px;
     text-align: left;
   }
