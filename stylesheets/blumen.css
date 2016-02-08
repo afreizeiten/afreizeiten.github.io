@@ -9,9 +9,6 @@ body {
   line-height: 1.5;
   color: #606c71; }
 
-nav {
-  width: 15em;
-}
 
 nav li {
   background-color: #a5c956;
@@ -19,38 +16,35 @@ nav li {
 nav li a {
   color: black;
 }
-
+section {
+  background-color: white;
+}
+footer p {
+  text-align: center;
+}
+nav {
+  list-style-type: none;
+  font-family: 'Caudex', serif;
+  font-size: 1em;
+  margin: 0 auto;
+  padding: 1em;
+  text-align: left;
+}
 
 @media screen and (min-width: 64em) {
-  header div {
-    background-image: url("../images/header-afreizeiten.png");
-    background-color: #cdeb8e;
-    background-color: -moz-linear-gradient(top,  #cdeb8e 0%, #a5c956 100%);
-    background-color: -webkit-gradient(linear, left top, left bottom, color-stop(0%,#cdeb8e), color-stop(100%,#a5c956));
-    background-color: -webkit-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
-    background-color: -o-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
-    background-color: -ms-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
-    background-color: linear-gradient(to bottom,  #cdeb8e 0%,#a5c956 100%);
+  header {
+    background-image: url("../images/header.png");
+    background-color: #a5c956;
     background-repeat: no-repeat;
     background-position: center top;
+    height: 160px;
   }
   nav {
-    list-style-type: none;
-    font-family: 'Caudex', serif;
-    font-size: 2em;
-    margin: 0 auto;
-    padding: 1em;
-    text-align: left;
+    float: left;
+    width: 15em;
   }
   nav li a:hover {
     text-decoration: underline;
-  }
-  h1.title {
-    font-size: 5em;
-    color: #6FB65B;
-    font-family: 'Caudex', serif;
-    padding-left: 200px;
-    text-align: left;
   }
 }
 
@@ -63,6 +57,9 @@ nav li a {
 @media screen and (max-width: 42em) {
   header div {
     padding: 2rem 1rem;
+  }
+  nav {
+    width: 100%;
   }
 }
 
