@@ -74,6 +74,14 @@ filter: progid:DXImageTransform.Microsoft.gradient( startColorstr='#cdeb8e', end
   .page-header {
     padding: 5rem 6rem;
     background-image: url("../images/logo-afreizeiten.jpeg");
+    background: #cdeb8e;
+background: -moz-linear-gradient(top,  #cdeb8e 0%, #a5c956 100%);
+background: -webkit-gradient(linear, left top, left bottom, color-stop(0%,#cdeb8e), color-stop(100%,#a5c956));
+background: -webkit-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
+background: -o-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
+background: -ms-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
+background: linear-gradient(to bottom,  #cdeb8e 0%,#a5c956 100%);
+fi
   background-repeat: no-repeat;
   background-position: left center;
   }
