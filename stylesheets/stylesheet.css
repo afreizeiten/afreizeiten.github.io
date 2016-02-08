@@ -71,8 +71,7 @@ a {
  }
 
 @media screen and (min-width: 64em) {
-  .page-header {
-    padding: 5rem 6rem;
+  header div {
     background-image: url("../images/header-afreizeiten.png");
     background-color: #cdeb8e;
     background-color: -moz-linear-gradient(top,  #cdeb8e 0%, #a5c956 100%);
@@ -82,11 +81,22 @@ a {
     background-color: -ms-linear-gradient(top,  #cdeb8e 0%,#a5c956 100%);
     background-color: linear-gradient(to bottom,  #cdeb8e 0%,#a5c956 100%);
     background-repeat: no-repeat;
-    background-position: left center;
+    background-position: center top;
   }
   nav {
-    padding-left: 200px;
+    list-style-type: none;
+    margin: 0 auto;
+    padding: 0;
     text-align: left;
+  }
+  nav li {
+    background-color: #a5c956;
+  }
+  nav li a {
+    color: black;
+  }
+  nav li a:hover {
+    text-decoration: underline;
   }
   h1.title {
     font-size: 5em;

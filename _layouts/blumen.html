@@ -10,16 +10,17 @@
 </head>
 <body>
 <header>
-<nav>
-  <li><a href="/home">Home</a></li> |
-  <li><a href="/freizeittermine">Freizeittermine</a></li>
-{% for p in site.pages %}
-{% if p.title == "Start" or p.title == "Termine" %}
-{% else %}
-  | <li><a href="{{ p.url }}">{{ p.title }}</a></li>
-{% endif %}
-{% endfor %}
-</nav>
+  <div></div>
+  <nav>
+    <li><a href="/home">Home</a></li> |
+    <li><a href="/freizeittermine">Freizeittermine</a></li>
+  {% for p in site.pages %}
+  {% if p.title == "Start" or p.title == "Termine" %}
+  {% else %}
+    | <li><a href="{{ p.url }}">{{ p.title }}</a></li>
+  {% endif %}
+  {% endfor %}
+  </nav>
 </header>
 <section class="main-content">
   {{ content }}
