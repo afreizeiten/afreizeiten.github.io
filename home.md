@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: blumen
 title: Start
 ---
 # A-Freizeiten - Was ist das?

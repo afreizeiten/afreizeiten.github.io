@@ -27,39 +27,80 @@ nav {
   font-family: 'Caudex', serif;
   font-size: 1em;
   margin: 0 auto;
-  padding: 1em;
+  padding: 0;
   text-align: left;
 }
 
 @media screen and (min-width: 64em) {
   header {
-    background-image: url("../images/header.png");
     background-color: #a5c956;
+    padding: 0px auto;
+    height: 165px;
+    width: 100%;
+  }
+  header div {
+    border: 1px solid #333;
+    background-image: url("../images/header.png");
     background-repeat: no-repeat;
-    background-position: center top;
-    height: 160px;
+    background-position: 5px 5px;
+    height: 162px;
+    width: 960px;
+    background-color: white;
   }
   nav {
     float: left;
     width: 15em;
   }
+  nav li {
+    padding-left: 5px;
+  }
   nav li a:hover {
     text-decoration: underline;
+    color: white;
   }
 }
 
 @media screen and (min-width: 42em) and (max-width: 64em) {
+  header {
+    height: 100px;
+  }
+  nav {
+    background-color: #a5c956;
+  }
+  nav li {
+    display: inline-block;
+    padding: 0 10px;
+  }
+  nav li a:hover {
+    text-decoration: underline;
+    color: white;
+  }
   header div {
-    padding: 3rem 4rem;
+    height: 100px;
+    background-image: url("../images/header.png");
+    background-size: 64em auto;
+  background-position: center;
+    background-repeat: no-repeat;
   }
 }
 
 @media screen and (max-width: 42em) {
   header div {
-    padding: 2rem 1rem;
+    height: 50px;
+    background-image: url("../images/header.png");
+    background-size: 42em auto;
+  background-position: center;
+    background-repeat: no-repeat;
   }
   nav {
     width: 100%;
+  }
+  nav li {
+    padding: 10px 10px;
+  }
+  nav li a:hover {
+    text-decoration: underline;
+    color: white;
   }
 }
 
@@ -151,17 +192,17 @@ nav {
     max-width: 64rem;
     padding: 2rem 6rem;
     margin: 0 auto;
-    font-size: 1.1rem; } }
+    font-size: 1.6rem; } }
 
 @media screen and (min-width: 42em) and (max-width: 64em) {
   .main-content {
     padding: 2rem 4rem;
-    font-size: 1.1rem; } }
+    font-size: 1.4rem; } }
 
 @media screen and (max-width: 42em) {
   .main-content {
     padding: 2rem 1rem;
-    font-size: 1rem; } }
+    font-size: 1.2rem; } }
 
 .site-footer {
   padding-top: 2rem;

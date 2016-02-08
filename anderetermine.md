@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: blumen
 title: andere Veranstaltungen
 ---
 

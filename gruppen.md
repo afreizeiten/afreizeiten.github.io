@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: blumen
 title: 12 Schritte Gruppen
 ---
 # 12-Schritte-Gruppen
