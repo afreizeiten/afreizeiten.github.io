@@ -10,7 +10,7 @@ body {
   color: #606c71; }
 nav > a {
   font-family: 'Caudex', serif;
-  font-size: 2em;
+  font-size: 1.5em;
   color: black;
 }
 a {
@@ -19,43 +19,6 @@ a {
   a:hover {
     text-decoration: underline; }
 
-.btn {
-  display: inline-block;
-  margin-bottom: 1rem;
-  color: rgba(255, 255, 255, 0.7);
-  background-color: rgba(255, 255, 255, 0.08);
-  border-color: rgba(255, 255, 255, 0.2);
-  border-style: solid;
-  border-width: 1px;
-  border-radius: 0.3rem;
-  transition: color 0.2s, background-color 0.2s, border-color 0.2s; }
-  .btn + .btn {
-    margin-left: 1rem; }
-
-.btn:hover {
-  color: rgba(255, 255, 255, 0.8);
-  text-decoration: none;
-  background-color: rgba(255, 255, 255, 0.2);
-  border-color: rgba(255, 255, 255, 0.3); }
-
-@media screen and (min-width: 64em) {
-  .btn {
-    padding: 0.75rem 1rem; } }
-
-@media screen and (min-width: 42em) and (max-width: 64em) {
-  .btn {
-    padding: 0.6rem 0.9rem;
-    font-size: 0.9rem; } }
-
-@media screen and (max-width: 42em) {
-  .btn {
-    display: block;
-    width: 100%;
-    padding: 0.75rem;
-    font-size: 0.9rem; }
-    .btn + .btn {
-      margin-top: 1rem;
-      margin-left: 0; } }
 
 .page-header {
   background-color: #cdeb8e;
@@ -71,8 +34,7 @@ a {
  }
 
 @media screen and (min-width: 64em) {
-  header div {
-    background-image: url("../images/header-afreizeiten.png");
+  .page-header {
     background-color: #cdeb8e;
     background-color: -moz-linear-gradient(top,  #cdeb8e 0%, #a5c956 100%);
     background-color: -webkit-gradient(linear, left top, left bottom, color-stop(0%,#cdeb8e), color-stop(100%,#a5c956));
@@ -87,7 +49,6 @@ a {
     list-style-type: none;
     margin: 0 auto;
     padding: 0;
-    text-align: left;
   }
   nav li {
     background-color: #a5c956;
@@ -102,8 +63,7 @@ a {
     font-size: 5em;
     color: #6FB65B;
     font-family: 'Caudex', serif;
-    padding-left: 200px;
-    text-align: left;
+    text-align: center;
   }
  }
 
@@ -116,6 +76,8 @@ a {
     padding: 2rem 1rem; } }
 
 .project-name {
+  color: #6FB65B;
+  font-family: 'Caudex', serif;
   margin-top: 0;
   margin-bottom: 0.1rem; }
 
@@ -131,22 +93,6 @@ a {
   .project-name {
     font-size: 1.75rem; } }
 
-.project-tagline {
-  margin-bottom: 2rem;
-  font-weight: normal;
-  opacity: 0.7; }
-
-@media screen and (min-width: 64em) {
-  .project-tagline {
-    font-size: 1.25rem; } }
-
-@media screen and (min-width: 42em) and (max-width: 64em) {
-  .project-tagline {
-    font-size: 1.15rem; } }
-
-@media screen and (max-width: 42em) {
-  .project-tagline {
-    font-size: 1rem; } }
 
 .main-content :first-child {
   margin-top: 0; }
