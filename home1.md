@@ -2,7 +2,7 @@
 layout: blumen
 title: Start
 ---
-# A-Freizeiten - Was ist das?
+# A-Freizeiten - Was sind das?
 
 
 Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
