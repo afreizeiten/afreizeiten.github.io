@@ -22,12 +22,12 @@
 	    </div>
 	    <div class="collapse navbar-collapse" id="myNavbar">
 	      <ul class="nav navbar-nav">
-	 	<a href="/home">Start</a> |
-	        <a href="/freizeittermine">Freizeittermine</a>
+	 	<li></li><a href="/home">Start</a></li>
+	        <li></li><a href="/freizeittermine">Freizeittermine</a></li>
 		{% for p in site.pages %}
 		{% if p.title == "Start" or p.title == "Termine" %}
 		{% else %}
-	        | <a href="{{ p.url }}">{{ p.title }}</a>
+	        <li></li><a href="{{ p.url }}">{{ p.title }}</a></li>
 		{% endif %}
 		{% endfor %}
 	    </ul>
