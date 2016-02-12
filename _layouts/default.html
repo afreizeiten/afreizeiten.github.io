@@ -12,6 +12,7 @@
   </head>
   <body>
     <nav class="navbar navbar-default">
+    	<div class="container">
 	    <div class="navbar-header">
 	      <button type="button" class="navbar-toggle" data-toggle="collapse" data-target="#myNavbar">
 	        <span class="icon-bar"></span>
@@ -30,9 +31,10 @@
 	        <li></li><a href="{{ p.url }}">{{ p.title }}</a></li>
 		{% endif %}
 		{% endfor %}
-	    </ul>
-	  </div>
-   	</nav>
+	      </ul>
+	    </div>
+       </div>
+   </nav>
 
     <section class="container main-content">
       {{ content }}
