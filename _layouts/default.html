@@ -11,21 +11,25 @@
     <link rel="stylesheet" type="text/css" href="stylesheets/github-light.css" media="screen">
   </head>
   <body>
-    <section class="page-header">
-      <h1 class="project-name">A-Freizeiten</h1>
-      <nav>
-        <a href="/home">Start</a> |
-        <a href="/freizeittermine">Freizeittermine</a>
-	{% for p in site.pages %}
-	{% if p.title == "Start" or p.title == "Termine" %}
-	{% else %}
-        | <a href="{{ p.url }}">{{ p.title }}</a>
-	{% endif %}
-	{% endfor %}
-      </nav>
-    </section>
+    <nav class="navbar navbar-default">
+	  <div class="container">
+	    <div class="navbar-header">
+	      <a class="navbar-brand" href="#">A-Freizeiten</a>
+	    </div>
+	    <ul class="nav navbar-nav">
+ 		<a href="/home">Start</a> |
+	        <a href="/freizeittermine">Freizeittermine</a>
+		{% for p in site.pages %}
+		{% if p.title == "Start" or p.title == "Termine" %}
+		{% else %}
+	        | <a href="{{ p.url }}">{{ p.title }}</a>
+		{% endif %}
+		{% endfor %}
+		    </ul>
+		  </div>
+   	</nav>
 
-    <section class="main-content">
+    <section class="container main-content">
       {{ content }}
     </section>
     <script src="https://ajax.googleapis.com/ajax/libs/jquery/1.11.3/jquery.min.js"></script>
