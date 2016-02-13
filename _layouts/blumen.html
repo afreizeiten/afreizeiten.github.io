@@ -17,7 +17,7 @@
     <li><a href="/home">Home</a></li>
     <li><a href="/freizeittermine">Freizeittermine</a></li>
   {% for p in site.pages %}
-  {% if p.title == "Start" or p.title == "Termine" %}
+  {% if p.title == "Start" or p.title == "Termine" or p.title == "error" %}
   {% else %}
     <li><a href="{{ p.url }}">{{ p.title }}</a></li>
   {% endif %}
