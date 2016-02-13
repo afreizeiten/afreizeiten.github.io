@@ -93,3 +93,15 @@ Freizeit vom Wolfgang
 
 [2016 Sommerfreizeit Allmannsried2.pdf](/pdf/Allmannsried2-2016.pdf)
 PDF-Dokument [116 KB]
+
+-------------------------------------------------------------------
+
+26.12.2016 bis 05.01.2017
+
+Blankenheim again 2016/2017
+
+Liebe Freizeitfreunde, wir vom Vorstand haben ab dem
+26.12.2016 bis 05.01.2017  den “Jugendhof Finkenhof“
+in Blankenheim angemietet. Wir suchen noch Teamer.
+
+
