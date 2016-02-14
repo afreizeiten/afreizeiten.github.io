@@ -54,16 +54,14 @@ title: Start
   </a>
 </div>
 
-<div class="panel panel-default">
-  <div class="panel-heading">
-    <h3 class="panel-title">A-Freizeiten - Was sind das?</h3>
-  </div>
-  <div class="panel-body">
+<div class="jumbotron">
+  <h3 class="panel-title">A-Freizeiten - Was sind das?</h3>
+  <p>
 Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
 <b>Lebensgemeinschaft auf Zeit</b> bilden.
 Sie werden im <b>Stil des A-Programms der Anonymen Alkoholiker</b> ausgetragen, das
 auch viele andere Selbsthilfegruppen für sich adaptiert haben.
-   </div>
+   </p>
 </div>
 
 ## Wer kann teilnehmen?
