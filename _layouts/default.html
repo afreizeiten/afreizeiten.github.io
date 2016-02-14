@@ -22,12 +22,28 @@
 	    <div class="collapse navbar-collapse" id="myNavbar">
 	      <ul class="nav navbar-nav navbar-right">
 	        <li><a href="/freizeittermine">Freizeittermine</a></li>
+		<div class="dropdown visible-md-inline visible-sm-inline">
+			<button class="btn btn-default dropdown-toggle" type="button" id="dropdownMenu1" data-toggle="dropdown" aria-haspopup="true" aria-expanded="true">
+			Menue
+			<span class="caret"></span>
+			</button>
+			<ul class="dropdown-menu" aria-labelledby="dropdownMenu1">
+				{% for p in site.pages %}
+				{% if p.title == "Start" or p.title == "Termine" or p.title == "error" %}
+				{% else %}
+			        <li><a href="{{ p.url }}">{{ p.title }}</a></li>
+				{% endif %}
+				{% endfor %}
+			</ul>
+		</div>
+		<div class="visible-lg-inline">
 		{% for p in site.pages %}
 		{% if p.title == "Start" or p.title == "Termine" or p.title == "error" %}
 		{% else %}
 	        <li><a href="{{ p.url }}">{{ p.title }}</a></li>
 		{% endif %}
 		{% endfor %}
+		</div>
 	      </ul>
 	    </div>
        </div>
