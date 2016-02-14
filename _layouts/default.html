@@ -31,13 +31,13 @@
 	      </ul>
 	      <ul class="nav navbar-nav navbar-right">
 		<div class="dropdown visible-sm-block-inline visible-md-block-inline">
-			<button class="btn btn-default dropdown-toggle visible-sm visible-md" 
+			<button class="btn btn-default bg-green dropdown-toggle visible-sm visible-md" 
 			        type="button" id="dropdownMenu1" data-toggle="dropdown" aria-haspopup="true" 
 			        aria-expanded="true">
 			Menue
 			<span class="caret"></span>
 			</button>
-			<ul class="dropdown-menu" aria-labelledby="dropdownMenu1">
+			<ul class="dropdown-menu bg-green" aria-labelledby="dropdownMenu1">
 				{% for p in site.pages %}
 				{% if p.title == "Start" or p.title == "Termine" or p.title == "error" %}
 				{% else %}
@@ -57,7 +57,7 @@
        </div>
    </nav>
 
-    <section class="container main-content">
+    <section class="container">
       {{ content }}
     </section>
     <section class="container">
