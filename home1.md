@@ -3,7 +3,7 @@ layout: default
 title: Start
 ---
 
-<div id="myCarousel" class="carousel slide xs-visible" data-ride="carousel">
+<div id="myCarousel" class="carousel slide xs-visible" data-ride="carousel" data-interval="1000">
   <!-- Indicators -->
   <ol class="carousel-indicators">
     <li data-target="#myCarousel" data-slide-to="0" class="active"></li>
