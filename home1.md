@@ -15,21 +15,21 @@ title: Start
   <!-- Wrapper for slides -->
   <div class="carousel-inner" role="listbox">
     <div class="item active">
-      <img class="img-responsive" src="images/BayerischerWald2000.png" alt="Chania">
+      <img class="img-responsive" src="images/carousel-1.jpeg" alt="Chania">
       <div class="carousel-caption">
         Bayrischer Wald 2000
       </div>
     </div>
 
     <div class="item">
-      <img class="img-responsive" src="images/ReitimWinkl2011.jpeg" alt="Chania">
+      <img class="img-responsive" src="images/carousel-2.jpeg" alt="Chania">
       <div class="carousel-caption">
         Reit im Winkl 2011
       </div>
     </div>
 
     <div class="item">
-      <img class="img-responsive" src="images/Solling2011-1.jpeg" alt="Flower">
+      <img class="img-responsive" src="images/carousel-3.jpeg" alt="Flower">
       <div class="carousel-caption">
         Solling 2011
       </div>
