@@ -1,5 +1,5 @@
 ---
-layout: blumen
+layout: default
 title: Aktuelles
 ---
 # Aktuelles
