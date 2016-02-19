@@ -1,8 +1,8 @@
 ---
 layout: default
-title: Termine
+title: XXTermine
 ---
-# FREIZEITTERMINE
+# Freizeittermine
 
 28.02. - 06.03.2016
 
