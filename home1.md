@@ -3,7 +3,7 @@ layout: default
 title: Start
 ---
 
-<div id="myCarousel" class="carousel slide xs-visible" data-ride="carousel" data-interval="1000">
+<div id="myCarousel" class="carousel slide xs-visible" data-ride="carousel" data-interval="3000">
   <!-- Indicators -->
   <ol class="carousel-indicators">
     <li data-target="#myCarousel" data-slide-to="0" class="active"></li>
@@ -16,21 +16,21 @@ title: Start
     <div class="item active">
       <img class="img-responsive" src="images/carousel-1.jpeg" alt="Chania">
       <div class="carousel-caption">
-        Bayrischer Wald 2000
+        Schaippachmühle 2012 - Noer 2012
       </div>
     </div>
 
     <div class="item">
       <img class="img-responsive" src="images/carousel-2.jpeg" alt="Chania">
       <div class="carousel-caption">
-        Reit im Winkl 2011
+        Niederalfing 2004 - Bremen 2013
       </div>
     </div>
 
     <div class="item">
       <img class="img-responsive" src="images/carousel-3.jpeg" alt="Flower">
       <div class="carousel-caption">
-        Solling 2011
+        Vosslap 2008 - Bayerischer Wald 2000
       </div>
     </div>
 
