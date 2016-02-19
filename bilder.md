@@ -1,5 +1,5 @@
 ---
-layout: blumen
+layout: default
 title: Bilder
 ---
 ## Bilder von verschiedenen A-Freizeiten der letzten Jahre
