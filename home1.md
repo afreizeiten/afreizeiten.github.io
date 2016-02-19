@@ -9,7 +9,6 @@ title: Start
     <li data-target="#myCarousel" data-slide-to="0" class="active"></li>
     <li data-target="#myCarousel" data-slide-to="1"></li>
     <li data-target="#myCarousel" data-slide-to="2"></li>
-    <li data-target="#myCarousel" data-slide-to="3"></li>
   </ol>
 
   <!-- Wrapper for slides -->
@@ -35,12 +34,6 @@ title: Start
       </div>
     </div>
 
-    <div class="item">
-      <img class="img-responsive" src="images/Wiedhölzlkaser2014.jpeg" alt="Flower">
-      <div class="carousel-caption">
-        Wiedhölzlkaser 2014
-      </div>
-    </div>
   </div>
 
   <!-- Left and right controls -->
