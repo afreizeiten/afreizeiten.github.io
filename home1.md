@@ -23,14 +23,14 @@ title: Start
     <div class="item">
       <img class="img-responsive" src="images/carousel-2.jpeg" alt="Chania">
       <div class="carousel-caption">
-        Niederalfing 2004 - Bremen 2013
+        Niederalfingen 2004 - Bremen 2013
       </div>
     </div>
 
     <div class="item">
       <img class="img-responsive" src="images/carousel-3.jpeg" alt="Flower">
       <div class="carousel-caption">
-        Vosslap 2008 - Bayerischer Wald 2000
+        Voslapp 2008 - Bayerischer Wald 2000
       </div>
     </div>
 
