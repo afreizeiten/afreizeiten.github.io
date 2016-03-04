@@ -46,14 +46,6 @@ Wo: Köln, Osho-Place, Venloer St. 2
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
-### EA-Wochenende in Fulda
-
-"Ich und Du sind Wir"
-
-am 5. - 8. Februar 2016
-
-<http://www.ea-selbsthilfe.net/aktuelles>
-
 ### EA Ländertreffen mit Gruppensprecherversammlung
 
 vom 12.-14.08.16 in Marburg in der Jugendherberge
