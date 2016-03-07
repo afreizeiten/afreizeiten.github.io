@@ -4,19 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
-28.02. - 06.03.2016
-
-Skifreizeit in Wiedhölzlkaser/Reit im Winkl
-
-![Reit](/images/reit.jpeg)
-
-Freizeit von Gerti
-
-[2016 Skifreizeit Reit im Winkl.pdf](/pdf/SkifreizeitReitimWinkl2016.pdf)
-PDF-Dokument [446.0 KB]
-
----------------------------------------------------------------------------
-
 01.03.2016 - 24.03.2016
 
 Freizeit in der Türkei
