@@ -58,6 +58,12 @@ vom 2. und 4. Sa. im Monat 17 - 19h
 
 [Flyer Kölner Komitee.pdf](/pdf/FlyerKölnerKomitee.pdf)
 
+### A-Männertreffen in Montabaur
+
+vom 29.04.- 01.05.2016
+
+
+
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN
 
 vom 11.- 13. März 2016
