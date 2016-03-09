@@ -88,11 +88,10 @@ vom 15. bis 17. Juli 2016
 [Mini-Freizeit in Blumenthal.pdf](/pdf/blumenthal.pdf)
 PDF-Dokument [146.4 KB]
 
-### Wochenenden für Ehemalige aus 12-Schritte-Kliniken
+### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
-Mit den 12 Schritten durchs Jahr
-mit Ruth und Gottfried, siehe auch
-<http://www.schrittewochenende.de>
+Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
+<http://www.12schrittewochenende.de>
 
 ### TA ME SE RE BE Gruppen/Meetings: Tanzen, Menschen, Selbsthilfe, Reden, Bewegung
 
