@@ -91,6 +91,7 @@ PDF-Dokument [146.4 KB]
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
+
 <http://www.12schrittewochenende.de>
 
 ### TA ME SE RE BE Gruppen/Meetings: Tanzen, Menschen, Selbsthilfe, Reden, Bewegung
