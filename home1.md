@@ -9,6 +9,7 @@ title: Start
     <li data-target="#myCarousel" data-slide-to="0" class="active"></li>
     <li data-target="#myCarousel" data-slide-to="1"></li>
     <li data-target="#myCarousel" data-slide-to="2"></li>
+    <li data-target="#myCarousel" data-slide-to="3"></li>
   </ol>
 
   <!-- Wrapper for slides -->
@@ -20,6 +21,12 @@ title: Start
       </div>
     </div>
 
+    <div class="item">
+      <img class="img-responsive" width="1140" src="images/carousel-4.jpeg" alt="Chania">
+      <div class="carousel-caption">
+        Dünenhof / Sylt 2015
+      </div>
+    </div>
     <div class="item">
       <img class="img-responsive" width="1140" src="images/carousel-2.jpeg" alt="Chania">
       <div class="carousel-caption">
