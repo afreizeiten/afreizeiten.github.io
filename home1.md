@@ -14,7 +14,7 @@ title: Start
   <!-- Wrapper for slides -->
   <div class="carousel-inner" role="listbox">
     <div class="item active">
-      <img class="img-responsive" src="images/carousel-1.jpeg" alt="Chania" width=940 height=310>
+      <img class="img-responsive" src="images/carousel-1.jpeg" alt="Chania">
       <div class="carousel-caption">
         Schaippachmühle 2012 - Noer 2012
       </div>
