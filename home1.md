@@ -14,21 +14,21 @@ title: Start
   <!-- Wrapper for slides -->
   <div class="carousel-inner" role="listbox">
     <div class="item active">
-      <img class="img-responsive" src="images/carousel-1.jpeg" alt="Chania">
+      <img class="img-responsive" width="1140" src="images/carousel-1.jpeg" alt="Chania">
       <div class="carousel-caption">
         Schaippachmühle 2012 - Noer 2012
       </div>
     </div>
 
     <div class="item">
-      <img class="img-responsive" src="images/carousel-2.jpeg" alt="Chania">
+      <img class="img-responsive" width="1140" src="images/carousel-2.jpeg" alt="Chania">
       <div class="carousel-caption">
         Niederalfingen 2004 - Bremen 2013
       </div>
     </div>
 
     <div class="item">
-      <img class="img-responsive" src="images/carousel-3.jpeg" alt="Flower">
+      <img class="img-responsive" width="1140" src="images/carousel-3.jpeg" alt="Flower">
       <div class="carousel-caption">
         Voslapp 2008 - Bayerischer Wald 2000
       </div>
