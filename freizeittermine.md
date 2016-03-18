@@ -91,4 +91,15 @@ Liebe Freizeitfreunde, wir vom Vorstand haben ab dem
 26.12.2016 bis 05.01.2017  den “Jugendhof Finkenhof“
 in Blankenheim angemietet. Wir suchen noch Teamer.
 
+-------------------------------------------------------------------
+
+13.04. - 22.04.2017
+
+Ostern in der "Bremer Schweiz"
+
+Freizeit von Mechthild und Petra
+
+
+
+
 
