@@ -97,6 +97,8 @@ in Blankenheim angemietet. Wir suchen noch Teamer.
 
 Weihnachten in der Schaippachmühle
 
+![Schaippach](/images/schaippach.jpeg)
+
 Freizeit von Erich
 
 [Weihnachten_2016_in_Schaippach.pdf](/pdf/Weihnachten_2016_in_Schaippach.pdf)
