@@ -115,7 +115,18 @@ Freizeit von Mechthild und Petra
 [2017 Ostern in Blumenthal.pdf](/pdf/2017OsterninBlumenthal.pdf)
 PDF-Dokument [199 KB]
 
+--------------------------------------------------------------------
 
+13.04. - 22.04.2017
 
+Ostern in der Schaippachmühle
 
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Erich
+
+[Ostern_2017_in_Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
+PDF-Dokument [1.4 MB]
+
+---------------------------------------------------------------------
 
