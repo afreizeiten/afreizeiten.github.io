@@ -93,6 +93,17 @@ in Blankenheim angemietet. Wir suchen noch Teamer.
 
 -------------------------------------------------------------------
 
+27.12.2016 - 04.01.2017
+
+Weihnachten in der Schaippachmühle
+
+Freizeit von Erich
+
+[Weihnachten_2016_in_Schaippach.pdf](/pdf/Weihnachten_2016_in_Schaippach.pdf)
+PDF-Dokument [1.4 MB]
+
+-------------------------------------------------------------------
+
 13.04. - 22.04.2017
 
 Ostern in der "Bremer Schweiz"
