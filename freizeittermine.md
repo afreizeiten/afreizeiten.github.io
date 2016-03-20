@@ -110,6 +110,8 @@ PDF-Dokument [1.4 MB]
 
 Ostern in der "Bremer Schweiz"
 
+![Ostern Bremer Schweiz](/images/bremen.jpeg)
+
 Freizeit von Mechthild und Petra
 
 [2017 Ostern in Blumenthal.pdf](/pdf/2017OsterninBlumenthal.pdf)
