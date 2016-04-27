@@ -50,7 +50,7 @@ Sommerausklang in der Bremer Schweiz
 
 ![Leiste_Herbst_Bremen](/images/Leiste_Herbst_Bremen.jpg)
 
-Freizeit von Mechthild und Petra
+Freizeit von Mechtild und Petra
 
 [2016 Herbst in der Bremer Schweiz.pdf](/pdf/2016 Herbst in der Bremer Schweiz.pdf)
 PDF-Dokument [128 KB]
@@ -86,7 +86,7 @@ Ostern in der "Bremer Schweiz"
 
 ![Ostern Bremer Schweiz](/images/bremen.jpeg)
 
-Freizeit von Mechthild und Petra
+Freizeit von Mechtild und Petra
 
 [2017 Ostern in Blumenthal.pdf](/pdf/2017OsterninBlumenthal.pdf)
 PDF-Dokument [199 KB]
