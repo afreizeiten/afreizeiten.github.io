@@ -48,10 +48,12 @@ PDF-Dokument [116 KB]
 
 Sommerausklang in der Bremer Schweiz
 
+![Leiste_Herbst_Bremen](/images/Leiste_Herbst_Bremen.jpeg)
+
 Freizeit von Mechthild und Petra
 
 [2016 Herbst in der Bremer Schweiz.pdf](/pdf/2016 Herbst in der Bremer Schweiz.pdf)
-PDF-Dokument []
+PDF-Dokument [128]
 
 -------------------------------------------------------------------
 
