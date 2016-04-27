@@ -44,6 +44,16 @@ PDF-Dokument [116 KB]
 
 -------------------------------------------------------------------
 
+25.09.2016 - 01.10.2016
+
+Sommerausklang in der Bremer Schweiz
+
+Freizeit von Mechthild und Petra
+
+[2016 Herbst in der Bremer Schweiz.pdf](/pdf/2016HerbstinderBremerSchweiz.pdf)
+
+-------------------------------------------------------------------
+
 26.12.2016 bis 05.01.2017
 
 Blankenheim again 2016/2017
