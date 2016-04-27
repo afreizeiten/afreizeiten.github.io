@@ -50,7 +50,8 @@ Sommerausklang in der Bremer Schweiz
 
 Freizeit von Mechthild und Petra
 
-[2016 Herbst in der Bremer Schweiz.pdf](/pdf/2016HerbstinderBremerSchweiz.pdf)
+[2016 Herbst in der Bremer Schweiz.pdf](/pdf/2016 Herbst in der Bremer Schweiz.pdf)
+PDF-Dokument []
 
 -------------------------------------------------------------------
 
