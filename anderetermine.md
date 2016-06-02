@@ -25,14 +25,6 @@ Spendenbasis
 Infos unter 01782090444 (Monika)
 
 
-### Kuschelmeeting - ICA Inner Child Anonymous
-MÜNCHEN
-1 x im Monat, Samstag, 19 - 21 h
-Elisabeth Kohn Straße 15, UG am Ackermannbogen
-Termine -  letzter Samstag im Monat
-Decke bitte mitbringen
-
-
 ### Freizeitwerk Stammtisch!
 
 Freunde vom Verein Selbsthilfe Freizeitwerk e.V. treffen sich zum gemütlichen
