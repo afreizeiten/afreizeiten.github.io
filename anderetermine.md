@@ -38,6 +38,11 @@ Wo: Köln, Osho-Place, Venloer St. 2
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
+### 9. Deutschsprachiges Ländertreffen der _Anonymen Paare in Genesung_
+
+vom am 8. und 9. Oktober 2016 in Köln. Es steht unter dem Motto "Gemeinsam schaffen wir es!". 
+[Hier das Programm](http://www.recovering-couples.de/files/RCATreffen2016.pdf)
+
 ### EA Ländertreffen mit Gruppensprecherversammlung
 
 vom 12.-14.08.16 in Marburg in der Jugendherberge
