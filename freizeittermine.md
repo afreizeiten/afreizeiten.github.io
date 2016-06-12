@@ -26,8 +26,9 @@ Sommerfreizeit in Allmannsried
 
 Freizeit vom Wolfgang
 
-Zur Überweisung an Wolfgang bitte die folgenden Kontoverbindung benutzen.
-BAN: DE91760100850006489856 
+Hier die IBAN von Wolfgangs Konto:
+IBAN: DE91760100850006489856 
+
 BIC: PBNKDEFF
 
 [2016 Sommerfreizeit Allmannsried1.pdf](/pdf/Allmannsried1-2016.pdf)
@@ -43,8 +44,9 @@ Sommerfreizeit in Allmannsried
 
 Freizeit vom Wolfgang
 
-Zur Überweisung an Wolfgang bitte die folgenden Kontoverbindung benutzen.
-BAN: DE91760100850006489856 
+Hier die IBAN von Wolfgangs Konto:
+IBAN: DE91760100850006489856 
+
 BIC: PBNKDEFF
 
 [2016 Sommerfreizeit Allmannsried2.pdf](/pdf/Allmannsried2-2016.pdf)
