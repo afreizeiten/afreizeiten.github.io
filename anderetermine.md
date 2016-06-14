@@ -48,7 +48,7 @@ vom am 8. und 9. Oktober 2016 in Köln. Es steht unter dem Motto "Gemeinsam scha
 vom 12.-14.08.16 in Marburg in der Jugendherberge
 
 vom 30.09. - 3.10.16 in der JH Donauwörth
-[EA-Herbsttreffen "Ich bin Ich"](pdfs/HerbsttreffenEA2016.pdf)
+[EA-Herbsttreffen "Ich bin Ich"](/pdf/HerbsttreffenEA2016.pdf)
 
 ### A Männertreffen
 
