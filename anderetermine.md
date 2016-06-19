@@ -16,6 +16,16 @@ Zur Zeit findet das K-Meeting in Bonn-Beuel, Neu-Vilich, Nähe Autobahnabfahrt
 Pützchen, statt.
 Kontakt: Telefon: Raimund 02241-319386
 
+### Kuschelmeeting in Gründung Hannover
+
+
+> ich möchte ein Kuschelmeeting für alle
+> A-Gruppen-Anghörige in Hannover gründen.
+> Raum und Zeit sind noch unklar. Detaillierte Möglichkeiten
+> würde ich gerne mit anderen Interessenten gemeinsam
+> erarbeiten. Freue mich sehr über Nachricht.
+> Kontaktieren könnt ihr mich (Patrice) unter 0511-76385571
+> oder per email: menschenwissenschaftler@yahoo.de
 
 ### Kuschelmeeting
 für Frauen, jeden ersten Donnerstag im Monat
