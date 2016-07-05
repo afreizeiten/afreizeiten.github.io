@@ -63,6 +63,9 @@ Liebe Freizeitfreunde, wir vom Vorstand haben ab dem
 26.12.2016 bis 05.01.2017  den “Jugendhof Finkenhof“
 in Blankenheim angemietet.
 
+[2016 Blankenheim.pdf](/pdf/2016_Blankenheim.pdf)
+PDF-Dokument [179 KB]
+
 -------------------------------------------------------------------
 
 27.12.2016 - 04.01.2017
