@@ -59,11 +59,11 @@ PDF-Dokument [128 KB]
 
 Blankenheim again 2016/2017
 
-Liebe Freizeitfreunde, wir vom Vorstand haben ab dem
-26.12.2016 bis 05.01.2017  den “Jugendhof Finkenhof“
-in Blankenheim angemietet.
+![Blankenheim](/images/blankenheim.jpeg)
 
-[2016 Blankenheim.pdf](/pdf/2016_Blankenheim.pdf)
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[2016/2017 Anmeldung Blankenheim.pdf](/pdf/2016_Blankenheim.pdf)
 PDF-Dokument [179 KB]
 
 -------------------------------------------------------------------
