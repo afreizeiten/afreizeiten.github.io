@@ -87,14 +87,6 @@ weitere Infos hier:
 [MINIFREIZEITEN 2016.pdf](/pdf/MINIFREIZEITEN2016.doc.pdf)
 PDF-Dokument [168 KB]
 
-### MINI-FREIZEIT IN BLUMENTHAL
-von Mechtild und Ulrike
-
-vom 15. bis 17. Juli 2016
-
-[Mini-Freizeit in Blumenthal.pdf](/pdf/blumenthal.pdf)
-PDF-Dokument [146.4 KB]
-
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
