@@ -6,24 +6,6 @@ title: Termine
 
 -------------------------------------------------------------------
 
-26.07.2016 - 07.08.2016
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit vom Wolfgang
-
-Hier die IBAN von Wolfgangs Konto:
-IBAN: DE91760100850006489856 
-
-BIC: PBNKDEFF
-
-[2016 Sommerfreizeit Allmannsried1.pdf](/pdf/Allmannsried1-2016.pdf)
-PDF-Dokument [116 KB]
-
--------------------------------------------------------------------
-
 16.08.2016 - 25.08.2016
 
 Sommerfreizeit in Allmannsried
@@ -107,3 +89,13 @@ PDF-Dokument [1.4 MB]
 
 ---------------------------------------------------------------------
 
+19.06. - 30.06. 2017 
+
+Freizeit in Westfriesland (Holland)
+
+![Westfriesland](/images/Leiste_Friesland.jpeg)
+
+Freizeit von Mechtild und Petra
+
+[2017 in Westfriesland.pdf](/pdf/2017 Westfriesland_Holland.pdf)
+PDF-Dokument [0.4 MB]
