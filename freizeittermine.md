@@ -93,7 +93,7 @@ PDF-Dokument [1.4 MB]
 
 Freizeit in Westfriesland (Holland)
 
-![Westfriesland](/images/Leiste_Friesland.jpeg)
+![Leiste_Friesland](/images/Leiste_Friesland.jpeg)
 
 Freizeit von Mechtild und Petra
 
