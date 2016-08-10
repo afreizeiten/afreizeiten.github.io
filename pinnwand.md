@@ -11,15 +11,7 @@ Beiträge<br>
 ...bitte an mich schicken, ich stells dann ein.
 <webmaster@a-freizeiten.de>
 
-## Mitfahrgelegenheit Grömitz
-
-Biete Mitfahrgelegenheit zur Sommerfreizeit nach Grömitz.
-Vom 12.06. bis 18.06.2016 entlang der A7 (Ulm, Würtzburg, Kassel, Hannover, Hamburg) von Isny nach Grömitz.
-Kleine Abhol-Abstecher entlang der Route sind mir möglich.
-Bitte melden unter sywandke@gmx.de oder 0173/5816995.
-Liebe Grüße Sylke
-
-## Suchmeldung
+Suchmeldung
 
 Hallo, eine Teilnehmerin am Bielefelder Laveno-WE-Seminar gab mir ihre
 'Visitenkarte' von A-Freizeiten. Leider ist mir ihr Name entfallen. Wer
