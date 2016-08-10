@@ -89,7 +89,7 @@ PDF-Dokument [1.4 MB]
 
 ---------------------------------------------------------------------
 
-19. bis 30. Juni 2017
+19.06. - 30.06.2017
 
 Friesisches Seengebiet im Frühsommer
 
