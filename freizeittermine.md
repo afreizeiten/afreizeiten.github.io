@@ -89,9 +89,9 @@ PDF-Dokument [1.4 MB]
 
 ---------------------------------------------------------------------
 
-19.06. - 30.06. 2017 
+19. bis 30. Juni 2017
 
-Freizeit in Westfriesland (Holland)
+Friesisches Seengebiet im Frühsommer
 
 ![Leiste_Friesland](/images/Leiste_Friesland.jpg)
 
