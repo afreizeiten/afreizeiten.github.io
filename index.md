@@ -63,7 +63,7 @@ Sie werden im <b>Stil des A-Programms der Anonymen Alkoholiker</b> ausgetragen, 
 auch viele andere Selbsthilfegruppen für sich adaptiert haben.
    </p>
 </div>
-<div class="visible-xs-*">
+<div class="bg-green hidden-sm hidden-md hidden-lg">
 <h3>Was sind A-Freizeiten?</h3>
 <p>
 Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
