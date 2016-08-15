@@ -54,10 +54,18 @@ title: Start
   </a>
 </div>
 <br>
-<div class="jumbotron bg-green">
-  <h2 class="hidden-xs">A-Freizeiten - Was sind das?</h2>
-  <h4 class="visible-xs-*">Was sind A-Freizeiten?</h4>
+<div class="jumbotron bg-green hidden-xs">
+  <h2>A-Freizeiten - Was sind das?</h2>
   <p>
+Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
+<b>Lebensgemeinschaft auf Zeit</b> bilden.
+Sie werden im <b>Stil des A-Programms der Anonymen Alkoholiker</b> ausgetragen, das
+auch viele andere Selbsthilfegruppen für sich adaptiert haben.
+   </p>
+</div>
+<div class="visible-xs-* bg-green">
+<h2>Was sind A-Freizeiten?</h2>
+<p>
 Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
 <b>Lebensgemeinschaft auf Zeit</b> bilden.
 Sie werden im <b>Stil des A-Programms der Anonymen Alkoholiker</b> ausgetragen, das
