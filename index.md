@@ -75,9 +75,10 @@ auch viele andere Selbsthilfegruppen für sich adaptiert haben.
 
 ## Wer kann teilnehmen?
 
-Freizeiten sind Veranstaltungen für __Mitglieder von Zwölf-Schritte-Gruppen__,
+Teilnehmen können __Mitglieder von Zwölf-Schritte-Gruppen__,
 die mit dem Zwölf-Schritte-Programm nach dem Vorbild der Anonymen Alkoholiker
-arbeiten. Deren __Angehörige__ dürfen in der Regel. ebenfalls teilnehmen.
+arbeiten sowie Menschen, die in einer 12-Schritte-Klinik waren. 
+Deren __Angehörige__ dürfen in der Regel ebenfalls teilnehmen.
 Manche Veranstaltungen sind auch für Nichtmitglieder offen, wenn diese dem
 A-Programm nahe stehen.
 
