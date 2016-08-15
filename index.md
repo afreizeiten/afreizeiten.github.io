@@ -64,7 +64,7 @@ auch viele andere Selbsthilfegruppen für sich adaptiert haben.
    </p>
 </div>
 <div class="visible-xs-* bg-green">
-<h2>Was sind A-Freizeiten?</h2>
+<h3>Was sind A-Freizeiten?</h3>
 <p>
 Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
 <b>Lebensgemeinschaft auf Zeit</b> bilden.
