@@ -55,7 +55,8 @@ title: Start
 </div>
 <br>
 <div class="jumbotron bg-green">
-  <h2>A-Freizeiten - Was sind das?</h2>
+  <h2 class="hidden-xs">A-Freizeiten - Was sind das?</h2>
+  <h4 class="visible-xs-*">Was sind A-Freizeiten?</h4>
   <p>
 Freizeiten sind Selbsthilfeveranstaltungen, bei denen die Teilnehmer eine Art
 <b>Lebensgemeinschaft auf Zeit</b> bilden.
