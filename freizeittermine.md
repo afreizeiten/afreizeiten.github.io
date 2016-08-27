@@ -70,6 +70,17 @@ Freizeit von Erich
 PDF-Dokument [1.4 MB]
 
 ---------------------------------------------------------------------
+05.06. - 17.06.2017
+
+Herzliche Einladung zur zweiten A-Freizeit auf Sylt  
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Gerti
+
+[Sylt Freizeit 2017.pdf](/pdf/Sylt_Freizeit_2017_Adresse_anonym.pdf)
+PDF-Dokument [0,6 MB]
+---------------------------------------------------------------------
 
 19.06. - 30.06.2017
 
