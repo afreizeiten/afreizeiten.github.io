@@ -6,24 +6,6 @@ title: Termine
 
 -------------------------------------------------------------------
 
-16.08.2016 - 25.08.2016
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit vom Wolfgang
-
-Hier die IBAN von Wolfgangs Konto:
-IBAN: DE91760100850006489856 
-
-BIC: PBNKDEFF
-
-[2016 Sommerfreizeit Allmannsried2.pdf](/pdf/Allmannsried2-2016.pdf)
-PDF-Dokument [116 KB]
-
--------------------------------------------------------------------
-
 25.09.2016 - 01.10.2016
 
 Sommerausklang in der Bremer Schweiz
