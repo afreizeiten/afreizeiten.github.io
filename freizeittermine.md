@@ -74,7 +74,7 @@ PDF-Dokument [1.4 MB]
 
 Herzliche Einladung zur zweiten A-Freizeit auf Sylt  
 
-[Sylt](/images/sylt2014.jpeg)
+![Sylt](/images/sylt2014.jpeg)
 
 Freizeit von Gerti
 
