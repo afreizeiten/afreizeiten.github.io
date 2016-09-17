@@ -58,7 +58,7 @@ vom am 8. und 9. Oktober 2016 in Köln. Es steht unter dem Motto "Gemeinsam scha
 vom 30.09. - 3.10.16 in der JH Donauwörth
 [EA-Herbsttreffen "Ich bin Ich"](/pdf/HerbsttreffenEA2016.pdf)
 
-### A Männertreffen
+### A-Männertreffen
 
 vom 14.-16.10.16 gibt es das zweite A-Männertreffen in Montabaur
 
