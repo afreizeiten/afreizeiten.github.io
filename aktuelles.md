@@ -8,7 +8,7 @@ Vorankündigung:
  
 Sommerfreizeit 2017 vom Selbsthilfe Freizeitwerk e V. 
  
-Für die Sommerfreitzeit 2017 ist wieder Grömitz/Ostsee vorgesehen, und zwar vom 19.06. bis 01.07.2016. 
+Für die Sommerfreitzeit 2017 ist wieder Grömitz/Ostsee vorgesehen, und zwar vom 19.06. bis 01.07.2017. 
 Es werden noch Teamer gesucht. Erste Anfragen sind schon da.
  
 Eva und Klaus (Vorstand)
