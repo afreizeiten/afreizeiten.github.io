@@ -100,5 +100,8 @@ PDF-Dokument [0.4 MB]
 
 Sommer an der Ostsee - Grömitz
 
+![groemitz.jpeg](/images/groemitz.jpeg.jpeg)
+
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
 (Ausschreibung folgt)
