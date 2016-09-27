@@ -93,3 +93,12 @@ Freizeit von Mechtild und Petra
 
 [2017 in Westfriesland.pdf](/pdf/2017 Westfriesland_Holland.pdf)
 PDF-Dokument [0.4 MB]
+
+---------------------------------------------------------------------
+
+19.06.2016 - 01.07.2016
+
+Sommer an der Ostsee - Grömitz
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+(Ausschreibung folgt)
