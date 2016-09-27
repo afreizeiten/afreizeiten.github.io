@@ -14,6 +14,7 @@ Es werden noch Teamer gesucht. Erste Anfragen sind schon da.
 Eva und Klaus (Vorstand)
 
 
+
 Bitte denkt bei Anträgen zur Mitgliederversammlung im Dezember 2016 in Blankenheim, diese Anträge schriftlich mit der entsprechenden Frist an den Vorstand zu senden.
 
 ## Gilt immer!
