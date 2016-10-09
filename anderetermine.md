@@ -84,7 +84,7 @@ auch für die, die schon dabei waren:
 bitte auch noch mal sorgfältig neu lesen, wegen der Neuerungen
 
 weitere Infos hier:
-[MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN2017.pdf)
+[MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN 2017.pdf)
 PDF-Dokument [168 KB]
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
