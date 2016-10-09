@@ -74,16 +74,17 @@ vom 2. und 4. Sa. im Monat 17 - 19h
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN
 
-vom 7.- 9. Oktober 2016
+vom 10.- 12. März 2017
 
-Bitte beachten: 4.-6.3.16 ist verschoben auf 11.-13.3.16
+und 13.- 15. Oktober 2017
+
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
 auch für die, die schon dabei waren:
 bitte auch noch mal sorgfältig neu lesen, wegen der Neuerungen
 
 weitere Infos hier:
-[MINIFREIZEITEN 2016.pdf](/pdf/MINIFREIZEITEN2016.doc.pdf)
+[MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN2017.pdf)
 PDF-Dokument [168 KB]
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
