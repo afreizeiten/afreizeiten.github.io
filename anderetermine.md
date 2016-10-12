@@ -73,6 +73,9 @@ und 13.- 15. Oktober 2017
 auch für die, die schon dabei waren:
 bitte auch noch mal sorgfältig neu lesen, wegen der Neuerungen
 
+Wer im Matratzenlager übernachten will, meldet das bitte spätestens 3 Tage vorher an, unter : 
+klolt@gmx.de; dann müssen wir nicht mehr Schlafplätze als nötig aufbauen.
+
 weitere Infos hier:
 [MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN 2017.pdf)
 PDF-Dokument [168 KB]
