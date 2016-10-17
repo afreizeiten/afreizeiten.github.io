@@ -47,12 +47,6 @@ Wo: Köln, Osho-Place, Venloer St. 2
 ## Treffen von 12-Schritte Gruppen
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
-
-### A-Männertreffen
-
-vom 14.-16.10.16 gibt es das zweite A-Männertreffen in Montabaur
-
-[A-Männertreffen Montabaur](/pdf/A-Männertreffen Montabaur 2016.pdf)
  
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
