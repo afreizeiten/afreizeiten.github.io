@@ -125,3 +125,7 @@ Help   for Teens Who Drink or Drug And All Those Who Love Them
 12-steps
 Aktivitäten   rund um das 12-Schritte-Selbsthilfe-Programm
    http://www.12steps.de
+
+Homepage für Ehemalige Adulaner/Hochgrater
+   http://www.ehemalige-adulaner-hochgrater.de/ 
+   
