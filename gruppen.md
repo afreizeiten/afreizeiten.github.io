@@ -54,16 +54,16 @@ Emotions Anonymous
    <www.emotionsanonymous.ch>
 
 GA
-Gamblers   Anonymous
- - Anonyme Spieler
+Gamblers   Anonymous 
+Anonyme Spieler
   <http://www.gamblersanonymous.org>
 
 GamAnon
 Angehörige   von GA
   <http://www.gam-anon.org>
 
-HIV       Anononymous
-HIV   Anononymous
+HIV       Anonymous
+HIV   Anonymous
   <http://www.hivanonymous.com>
 
 I.S.A.
