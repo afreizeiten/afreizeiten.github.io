@@ -30,45 +30,45 @@ AS: Anonyme Sexaholiker
 
 BA
 Anonyme Borderliner
-   http://www.borderliners-   anonymous.de
+  <http://www.borderliners-anonymous.de>
 
 CLA
 Clutterer Anonymous
-   http://www.clutterers-anonymous.de
+  <http://www.clutterers-anonymous.de>
 
 Co-Anon
 Angehörige     von Kokainabhängigen
-   http://www.co-anon.org
+  <http://www.co-anon.org>
 
 CoDA
 Co-Dependents Anonymous
-   http://www.coda-deutschland.de
+  <http://www.coda-deutschland.de>
 
 DA
 Debtors Anonymous
-   http://www.anonyme-schuldner.org
+  <http://www.anonyme-schuldner.org>
 
 EA
 Emotions Anonymous
-   http://www.ea-selbsthilfe.net
-    www.emotionsanonymous.ch
+  <http://www.ea-selbsthilfe.net>
+   <www.emotionsanonymous.ch>
 
 GA
 Gamblers   Anonymous
  - Anonyme Spieler
-   http://www.gamblersanonymous.org
+  <http://www.gamblersanonymous.org>
 
 GamAnon
 Angehörige   von GA
-   http://www.gam-anon.org
+  <http://www.gam-anon.org>
 
 HIV       Anononymous
 HIV   Anononymous
-   http://www.hivanonymous.com
+  <http://www.hivanonymous.com>
 
 I.S.A.
 Incest Survivors Anonymous - Anonyme Inzestüberlebende
-   http://www.isa-anonyme-inzest-ueberlebende.de
+  <http://www.isa-anonyme-inzest-ueberlebende.de>
 
 Kuschelmeeting
  offen   für alle A-Gruppen-Angehörige
@@ -76,56 +76,55 @@ Kuschelmeeting
 
 MTC
 Make Today Count - Selbsthilfegruppe für lebensbedrohlich Erkrankte
-   http://www.ourcommunity.com.au/directories/listing?id=743/directories/listing?id=743
+  <http://www.ourcommunity.com.au/directories/listing?id=743/directories/listing?id=743>
 
 NA
  Narcotics   Anonymous
-   http://www.narcotics-anonymous.de
+  <http://www.narcotics-anonymous.de>
 
 NACR,   ACH
  National   Association for Christian Recovery -  Arbeitsgemeinschaft für
 Christliche 12-Schritte-Gruppen
-   http://www.christianrecovery.com
- http://www.christliche-12-schritte-
-gruppen.de
+  <http://www.christianrecovery.com>
+<http://www.christliche-12-schritte-gruppen.de>
 
 NarAnon
 Angehörige   von NA
-   http://www.naranon.de
+  <http://www.naranon.de>
 
 OA
 Overeaters Anonymous - Anonyme Eßsüchtige
-   http://www.overeaters-   anonymous.de
+  <http://www.overeaters-anonymous.de>
 
 OCA
 Obsessive   Compulsive    Anonymous - Genesung
 von der Zwangsstörung
-   http://www.zwaenge-oca.de
+  <http://www.zwaenge-oca.de>
 
 SAA
 Sex Addicts Anonymous
-   http://www.saa-recovery.org
+  <http://www.saa-recovery.org>
 
 RCA
 12-Schritte-Paare in Genesung
-   http://www.recovering-couples.de
+  <http://www.recovering-couples.de>
 
 SIA
 Survivors of   Incest Anonymous
-   http://www.siawso.org
+  <http://www.siawso.org>
 
 S.L.A.A.
 Sex-   and Love Addicts Anonymous
-   http://www.slaa.de
+  <http://www.slaa.de>
 
 Teen-Anon
 Help   for Teens Who Drink or Drug And All Those Who Love Them
-   http://www.teen-anon.com
+  <http://www.teen-anon.com>
 
 12-steps
 Aktivitäten   rund um das 12-Schritte-Selbsthilfe-Programm
-   http://www.12steps.de
+  <http://www.12steps.de>
 
 Homepage für ehemalige Adulaner/Hochgrater
-   http://www.ehemalige-adulaner-hochgrater.de/ 
+  <http://www.ehemalige-adulaner-hochgrater.de> 
    
