@@ -51,7 +51,7 @@ Debtors Anonymous
 EA
 Emotions Anonymous
   <http://www.ea-selbsthilfe.net>
-   <www.emotionsanonymous.ch>
+  <http://www.emotionsanonymous.ch>
 
 GA
 Gamblers   Anonymous 
@@ -62,7 +62,7 @@ GamAnon
 Angehörige   von GA
   <http://www.gam-anon.org>
 
-HIV       Anonymous
+HIV  Anonymous
 HIV   Anonymous
   <http://www.hivanonymous.com>
 
@@ -76,7 +76,7 @@ Kuschelmeeting
 
 MTC
 Make Today Count - Selbsthilfegruppe für lebensbedrohlich Erkrankte
-  <http://www.ourcommunity.com.au/directories/listing?id=743/directories/listing?id=743>
+  <http://www.ourcommunity.com.au/directories/listing?id743/directories/listing?id743>
 
 NA
  Narcotics   Anonymous
