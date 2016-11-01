@@ -62,7 +62,7 @@ PDF-Dokument [1.4 MB]
 
 12-Schritte-Wanderung in Bad Herrenalb
 
-![Ferienheim-Aschenhuette_i2221.jpeg](/images/Ferienheim-Aschenhuette_i2221.jpeg)
+![Ferienheim-Aschenhuette.jpeg](/images/Ferienheim-Aschenhuette__i2221.jpeg)
 
 Freizeit von Eva
 
