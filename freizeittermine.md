@@ -56,7 +56,19 @@ Freizeit von Erich
 [Ostern 2017 in Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
 PDF-Dokument [1.4 MB]
 
----------------------------------------------------------------------
+-------------------------------------------------------------------
+
+24.05. - 28.05.2017
+
+12-Schritte-Wanderung in Bad Herrenalb
+
+Freizeit von Eva
+
+[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
+PDF-Dokument [237 kB]
+
+-------------------------------------------------------------------
+
 05.06. - 17.06.2017
 
 Herzliche Einladung zur zweiten A-Freizeit auf Sylt  
