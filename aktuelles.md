@@ -4,7 +4,7 @@ title: Aktuelles
 ---
 # Aktuelles
 
-Weihnachtsfreizeit Schaippach auf der Kippe!
+## Weihnachtsfreizeit Schaippach auf der Kippe!
 
 Damit die Weihnachtsfreizeit in der Schaipachmühle stattfinden kann, fehlen laut Info von Erich noch 20 Anmeldungen (Stand 06.11.).
 Falls bis Mitte November nicht genug Teilnehmer/innen angemeldet sind, muss die Freizeit abgesagt werden, so Erich.
