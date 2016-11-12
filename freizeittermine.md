@@ -105,4 +105,5 @@ Sommer an der Ostsee - Grömitz
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-(Ausschreibung folgt)
+[2017 Sommerfreizeit Groemitz.pdf](/pdf/2017 Sommerfreizeit Groemitz.pdf)
+PDF-Dokument [192 kB]
