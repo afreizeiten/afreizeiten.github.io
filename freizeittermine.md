@@ -110,7 +110,7 @@ PDF-Dokument [192 kB]
 
 ---------------------------------------------------------------------
 
-A-Freizeiten in Allmannsried 2017
+A-Freizeiten in Allmannsried - Allgäu 2017
 
 ![allmannsried](/images/allmansried.jpeg)
 
