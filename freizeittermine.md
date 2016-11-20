@@ -118,8 +118,8 @@ Freizeiten von Wolfgang
 
 Die neuen Termine stehen fest.
 
-1. Freizeit 31.7.-12.8.2017 (12Tage)
-2.Freizeit 27.8.-5.9.2017    (9Tage)
+1.Freizeit 31.7.-12.8.2017 (12Tage)
+2.Freizeit 27.8.-5.9.2017   (9Tage)
 
 Preise
 12 Tage mit Du/WC 589,- ohne DU/WC 576,-
