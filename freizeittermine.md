@@ -116,18 +116,15 @@ A-Freizeiten in Allmannsried - Allgäu 2017
 
 Freizeiten von Wolfgang 
 
-Die neuen Termine stehen fest.
-
 1.Freizeit 31.7.-12.8.2017 (12Tage)
+
+[Sommer in Allmannsried_1.pdf](/pdf/Sommer in Allmannsried_1.pdf)
+PDF-Dokument [70 KB]
+
+
 2.Freizeit 27.8.-5.9.2017   (9Tage)
 
-Preise
-12 Tage mit Du/WC 589,- ohne DU/WC 576,-
-9 Tage mit DU/WC 449,- ohne   441,-
-7 Tage mit   349,-    ohne 344,-
-
-Kurtaxe 1,90 Euro
-
-Anmeldungen sind noch nicht möglich, die Ausschreibung folgt!
+[Sommer in Allmannsried_2.pdf](/pdf/Sommer in Allmannsried_2.pdf)
+PDF-Dokument [70 KB]
 
 ---------------------------------------------------------------------
