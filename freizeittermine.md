@@ -118,13 +118,13 @@ Freizeiten von Wolfgang
 
 1.Freizeit 31.7.-12.8.2017 (12Tage)
 
-[SOMMER IN ALLMANNSRIED_1.pdf](/pdf/SOMMER IN ALLMANNSRIED_1.pdf)
+[SOMMER IN ALLMANNSRIED 1.pdf](/pdf/SOMMER IN ALLMANNSRIED_1.pdf)
 PDF-Dokument [70 KB]
 
 
 2.Freizeit 27.8.-5.9.2017   (9Tage)
 
-[SOMMER IN ALLMANNSRIED_2.pdf](/pdf/SOMMEr IN ALLMANNSRIED_2.pdf)
+[SOMMER IN ALLMANNSRIED 2.pdf](/pdf/SOMMEr IN ALLMANNSRIED_2.pdf)
 PDF-Dokument [70 KB]
 
 ---------------------------------------------------------------------
