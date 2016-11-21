@@ -15,8 +15,10 @@ Beiträge<br>
 
 Ich bin Geli aus Lüneburg, möchte gern die gesamte Freizeit in Blankenheim verbringen 
 und würde mich freuen, wenn es Möglichkeiten, entweder aus d. Raum Hamburg, 
-Schleswig- Holstein, Bremen od. Hannover gäbe, um mitfahren  zu können.
+Schleswig- Holstein, Bremen od. Hannover gäbe, um mitfahren zu können.
+
 Tel. 04131 29 699 20 
+
 Bitte auch auf AB sprechen!
 
 ###Suchmeldung
