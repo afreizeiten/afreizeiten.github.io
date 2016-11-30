@@ -85,7 +85,7 @@ PDF-Dokument [16 KB]
 
 ### Vorankündigung des nächsten A-Männertreffens
  
-3. A-Männertreffen Marburg
+_3. A-Männertreffen Marburg
 vom 29.9. - 3.10.2017
 
 Flyer folgt im Sommer!
