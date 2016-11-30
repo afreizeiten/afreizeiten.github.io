@@ -83,6 +83,13 @@ weitere Infos hier:
 [MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN 2017.pdf)
 PDF-Dokument [16 KB]
 
+### Vorankündigung des nächsten A-Männertreffens
+ 
+3. A-Männertreffen Marburg
+vom 29.9. - 3.10.2017
+
+Flyer folgt im Sommer!
+
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
