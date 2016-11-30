@@ -62,7 +62,7 @@ vom 24.2. - 27.2.2017
 
 Anmeldeformular und Infos unter:
 
-www.e-und-a.net/events/fulda
+<http://www.e-und-a.net/events/fulda>
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN
 
