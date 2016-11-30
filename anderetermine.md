@@ -56,6 +56,14 @@ vom 2. und 4. Sa. im Monat 17 - 19h
 
 [Flyer Kölner Komitee.pdf](/pdf/FlyerKölnerKomitee.pdf)
 
+### EA-Wochenende Fulda
+Der erste Tag ...
+vom 24.2. - 27.2.2017
+
+Anmeldeformular und Infos unter:
+
+www.e-und-a.net/events/fulda
+
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN
 
 vom 10.- 12. März 2017
