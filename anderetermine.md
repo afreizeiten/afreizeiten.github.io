@@ -52,7 +52,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ### Kölner Komitee für Ehemalige aus 12- Schritte - Kliniken
 
-vom 2. und 4. Sa. im Monat 17 - 19h
+jeden 2. und 4. Samstag im Monat 17 - 19h
 
 [Flyer Kölner Komitee.pdf](/pdf/FlyerKölnerKomitee.pdf)
 
