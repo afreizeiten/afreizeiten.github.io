@@ -13,7 +13,10 @@ Veranstaltungen mit, die in diese Kategorie passen.
 ### Kuschelmeeting (offen für alle A-Gruppen-Angehörigen):
 Freitags 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr)
 Zur Zeit findet das K-Meeting in Bonn-Beuel, Neu-Vilich, Nähe Autobahnabfahrt
-Pützchen, statt.
+Pützchen, statt. 
+# ACHTUNG: Die Meetingadresse ändert sich ab Januar 2017!
+Wer bereits informiert ist, bitte diskret an andere A-Freunde weitergeben.
+
 Kontakt: Telefon: Raimund 02241-319386
 
 ### Kuschelmeeting in Gründung Hannover
