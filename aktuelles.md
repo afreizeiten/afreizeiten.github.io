@@ -4,7 +4,14 @@ title: Aktuelles
 ---
 # Aktuelles
 
-Bitte denkt bei Anträgen zur Mitgliederversammlung im Dezember 2016 in Blankenheim, diese Anträge schriftlich mit der entsprechenden Frist an den Vorstand zu senden.
+Suchmeldung: Silvester/Neujahr in Blankenheim
+
+Anne aus Heilbronn vermisst ihre rote, kuschelige Angoramütze!
+Wer hatte plötzlich zwei Mützen im Koffer?
+
+Nachricht bitte an:
+
+webmaster@a-freizeiten.de
 
 ## Gilt immer!
 
