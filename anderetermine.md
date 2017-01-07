@@ -56,9 +56,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ### Kölner Komitee für Ehemalige aus 12- Schritte - Kliniken
 
-jeden 2. und 4. Samstag im Monat 17 - 19h
-
-[Flyer Kölner Komitee.pdf](/pdf/FlyerKölnerKomitee.pdf)
+Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
 
 ### EA-Wochenende Fulda
 Der erste Tag ...
