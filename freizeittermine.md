@@ -4,33 +4,7 @@ title: Termine
 ---
 # Freizeittermine
 
--------------------------------------------------------------------
-
-26.12.2016 bis 05.01.2017
-
-Blankenheim again 2016/2017
-
-![Blankenheim](/images/blankenheim.jpeg)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[2016/2017 Anmeldung Blankenheim.pdf](/pdf/2016_Blankenheim.pdf)
-PDF-Dokument [179 KB]
-
--------------------------------------------------------------------
-
-27.12.2016 - 04.01.2017
-
-Weihnachten in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten_2016_in_Schaippach.pdf)
-PDF-Dokument [1.4 MB]
-
--------------------------------------------------------------------
+------------------------------------------------------------------
 
 13.04. - 22.04.2017
 
