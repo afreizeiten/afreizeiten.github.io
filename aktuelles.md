@@ -11,7 +11,7 @@ Wer hatte plötzlich zwei Mützen im Koffer?
 
 Nachricht bitte an:
 
-webmaster@a-freizeiten.de
+<webmaster@a-freizeiten.de>
 
 ## Gilt immer!
 
