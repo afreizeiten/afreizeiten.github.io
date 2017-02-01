@@ -20,7 +20,7 @@ Wer bereits informiert ist, bitte diskret an andere A-Freunde weitergeben.
 
 Kontakt: Telefon: Raimund 02241-319386
 
-### Kuschelmeeting Hannover (offen für alle A-Gruppen-Angehörige)
+### Kuschelmeeting Hannover (offen für alle A-Gruppen-Angehörigen)
 
 > Ab Februar 2017 beginnt vorerst testweise 1x pro Monat in Hannover ein Kuschelmeeting 
 > für alle A-Gruppen-Angehörigen. Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
