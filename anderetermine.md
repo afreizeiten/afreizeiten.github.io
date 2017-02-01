@@ -20,16 +20,12 @@ Wer bereits informiert ist, bitte diskret an andere A-Freunde weitergeben.
 
 Kontakt: Telefon: Raimund 02241-319386
 
-### Kuschelmeeting in Gründung Hannover
+### Kuschelmeeting Hannover (offen für alle A-Gruppen-Angehörige)
 
-
-> ich möchte ein Kuschelmeeting für alle
-> A-Gruppen-Anghörige in Hannover gründen.
-> Raum und Zeit sind noch unklar. Detaillierte Möglichkeiten
-> würde ich gerne mit anderen Interessenten gemeinsam
-> erarbeiten. Freue mich sehr über Nachricht.
-> Kontaktieren könnt ihr mich (Patrice) unter 0511-76385571
-> oder per email: menschenwissenschaftler@yahoo.de
+> Ab Februar 2017 beginnt vorerst testweise 1x pro Monat in Hannover ein Kuschelmeeting 
+> für alle A-Gruppen-Angehörigen. Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
+> Freue mich sehr über Nachricht. Kontaktieren könnt Ihr mich (Patrice) unter:
+> 0511-76385571 oder per Email: <menschenwissenschaftler@yahoo.de>
 
 ### Kuschelmeeting
 für Frauen, jeden ersten Donnerstag im Monat
