@@ -54,13 +54,12 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
 
-### EA-Wochenende Fulda
-Der erste Tag ...
-vom 24.2. - 27.2.2017
+### EA-Maitreffen Donauwörth
 
+"Stolpersteine"  vom 28. April - 1.Mai 2017
 Anmeldeformular und Infos unter:
 
-<http://www.e-und-a.net/events/fulda>
+<http://www.e-und-a.net/events/donauwörth>
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN
 
