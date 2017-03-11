@@ -16,7 +16,7 @@ Beiträge<br>
 Wer fährt am Freitag den 28.April auf das EA-Treffen in Donauwörth mit dem Auto?
 Wer kann mich mitnehmen?
 Bin im Kreis Göppingen zuhause.  
-Emailadresse: <mb62@gmx.de>
+Emailadresse: <mb.62@gmx.de>
 Gruß von Martina
 
 # Suchmeldung
