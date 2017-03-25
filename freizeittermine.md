@@ -108,6 +108,8 @@ PDF-Dokument [70 KB]
 
 Mini-Freizeit in Bremen-Blumenthal
 
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
 Freizeit von Mechtild und Nanette
 
 [Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit 2017 Bremen.pdf)
