@@ -115,3 +115,13 @@ Freizeit von Mechtild und Nanette
 [Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit 2017 Bremen.pdf)
 
 ---------------------------------------------------------------------
+
+29.10.-04.11.2017
+
+Herbst-Freizeit in Bremen-Blumenthal
+
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Petra
+
+[Herbst-Freizeit Bremen.pdf](pdf/Einladung Herbst 2017 Bremen.pdf )
