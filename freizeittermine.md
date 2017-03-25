@@ -103,3 +103,13 @@ PDF-Dokument [70 KB]
 PDF-Dokument [70 KB]
 
 ---------------------------------------------------------------------
+
+25.08.-27.08.2017
+
+Mini-Freizeit in Bremen-Blumenthal
+
+Freizeit von Mechtild und Nanette
+
+[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit 2017 Bremen.pdf)
+
+---------------------------------------------------------------------
