@@ -124,4 +124,4 @@ Herbst-Freizeit in Bremen-Blumenthal
 
 Freizeit von Mechtild und Petra
 
-[Herbst-Freizeit Bremen.pdf](pdf/Einladung Herbst 2017 Bremen.pdf )
+[Herbst-Freizeit Bremen.pdf](pdf/Einladung Herbst 2017.pdf )
