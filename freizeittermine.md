@@ -5,31 +5,6 @@ title: Termine
 # Freizeittermine
 
 ------------------------------------------------------------------
-
-13.04. - 22.04.2017
-
-Ostern in der "Bremer Schweiz"
-
-![Ostern Bremer Schweiz](/images/bremen.jpeg)
-
-Freizeit von Mechtild und Petra
-
-[2017 Ostern in Blumenthal.pdf](/pdf/2017OsterninBlumenthal.pdf)
-PDF-Dokument [199 KB]
-
---------------------------------------------------------------------
-
-13.04. - 22.04.2017
-
-Ostern in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Ostern 2017 in Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
-PDF-Dokument [1.4 MB]
-
 -------------------------------------------------------------------
 
 24.05. - 28.05.2017
