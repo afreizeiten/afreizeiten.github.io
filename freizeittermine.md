@@ -113,3 +113,16 @@ Freizeit von Erich
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
 PDF-Dokument [1.4 MB]
+
+----------------------------------------------------------------------------
+
+29.03.2018 – 07.04.2018
+
+Ostern in der Schaippachmühle
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Erich
+
+[Ostern 2018 in Schaippach.pdf](/pdf/Ostern in Schaippach 2018.pdf)
+PDF-Dokument [1.4 MB]
