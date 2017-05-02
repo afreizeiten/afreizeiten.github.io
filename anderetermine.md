@@ -80,6 +80,16 @@ weitere Infos hier:
 [MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN 2017.pdf)
 PDF-Dokument [16 KB]
 
+### Mini-Freizeit in Bremen-Blumenthal
+
+25.08.-27.08.2017
+
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Nanette
+
+[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit 2017 Bremen.pdf)
+
 ### Vorankündigung des nächsten A-Männertreffens
  
 '3. A-Männertreffen Marburg
