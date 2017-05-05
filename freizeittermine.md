@@ -91,7 +91,7 @@ Freizeit von Mechtild und Petra
 
 ---------------------------------------------------------------------
 
-26.12.2017 bis 05.01.2018
+26.12.2017 - 05.01.2018
 
 Winter-Freizeit in Blankenheim/Eifel
 
