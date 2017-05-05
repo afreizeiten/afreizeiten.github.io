@@ -91,6 +91,18 @@ Freizeit von Mechtild und Petra
 
 ---------------------------------------------------------------------
 
+26.12.2017 bis 05.01.2018
+
+Winter-Freizeit in Blankenheim/Eifel
+
+![Blankenheim](/images/blankenheim.jpeg)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[Anmeldung Blankenheim.pdf](/pdf/2017_Blankenheim.pdf)
+
+---------------------------------------------------------------------
+
 27.12.2017 - 04.01.2018
 
 Weihnachten in der Schaippachmühle
