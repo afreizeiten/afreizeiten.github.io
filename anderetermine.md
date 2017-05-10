@@ -54,18 +54,9 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
 
-### EA-Maitreffen Donauwörth
+### Peter lädt ein zur Mini-Freizeit in MINDEN
 
-"Stolpersteine"  vom 28. April - 1.Mai 2017
-Anmeldeformular und Infos unter:
-
-<http://www.e-und-a.net/events/donauwörth>
-
-### Peter lädt ein zu Mini-Freizeiten in MINDEN
-
-vom 10.- 12. März 2017
-
-und 13.- 15. Oktober 2017
+13.- 15. Oktober 2017
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
