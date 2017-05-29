@@ -4,20 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
-------------------------------------------------------------------
--------------------------------------------------------------------
-
-24.05. - 28.05.2017
-
-12-Schritte-Wanderung in Bad Herrenalb
-
-![Leiste Bad Herrenalb2](/images/Leiste Bad Herrenalb2.png)
-
-Freizeit von Eva
-
-[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
-PDF-Dokument [237 kB]
-
 -------------------------------------------------------------------
 
 05.06. - 17.06.2017
