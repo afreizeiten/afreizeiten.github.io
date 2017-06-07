@@ -85,7 +85,7 @@ Winter-Freizeit in Blankenheim/Eifel
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Anmeldung Blankenheim.pdf](/pdf/2017_Blankenheim.pdf)
+[Anmeldung Blankenheim.pdf](/pdf/2017_Blankenheim neu.pdf)
 
 ---------------------------------------------------------------------
 
