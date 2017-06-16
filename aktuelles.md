@@ -11,6 +11,8 @@ In der Frühsommer-Freizeit von Petra und Mechtild in Holland sind noch 2 Plätz
 frei und ein Doppelzimmer ist noch zu vergeben. Die Freizeit in einem friesischen Bauernhaus direkt 
 am Wasser findet vom 19. bis zum 30. Juni statt.
 
+Auch in der ersten Freizeit im Allgäu vom 31.07. bis zum 12.08.17 sind noch einige Plätze frei. 
+
 ## Gilt immer!
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
