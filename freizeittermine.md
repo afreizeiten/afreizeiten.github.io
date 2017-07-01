@@ -4,32 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
--------------------------------------------------------------------
-
-19.06. - 30.06.2017
-
-Friesisches Seengebiet im Frühsommer
-
-![Leiste_Friesland](/images/Leiste_Friesland.jpg)
-
-Freizeit von Mechtild und Petra
-
-[2017 in Westfriesland.pdf](/pdf/2017 Westfriesland_Holland.pdf)
-PDF-Dokument [0.4 MB]
-
----------------------------------------------------------------------
-
-19.06.2017 - 01.07.2017
-
-Sommer an der Ostsee - Grömitz
-
-![groemitz.jpeg](/images/groemitz.jpeg)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[2017 Sommerfreizeit Groemitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
-PDF-Dokument [192 kB]
-
 ---------------------------------------------------------------------
 
 A-Freizeiten in Allmannsried - Allgäu 2017
