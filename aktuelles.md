@@ -4,14 +4,7 @@ title: Aktuelles
 ---
 # Aktuelles
 
-ACHTUNG! Für die Sommerfreizeit in Grömitz (Ostsee) sind noch 2 Zimmer frei! Wer also noch Interesse hat…..
-schnell noch bei Gerhard (bussehamburg@gmx.de) anmelden. 
- 
-In der Frühsommer-Freizeit von Petra und Mechtild in Holland sind noch 2 Plätze im 4er-Männerzimmer 
-frei und ein Doppelzimmer ist noch zu vergeben. Die Freizeit in einem friesischen Bauernhaus direkt 
-am Wasser findet vom 19. bis zum 30. Juni statt.
-
-Auch in der ersten Freizeit im Allgäu vom 31.07. bis zum 12.08.17 sind noch einige Plätze frei. 
+In der ersten Freizeit im Allgäu vom 31.07. bis zum 12.08.17 sind noch einige Plätze frei. 
 
 ## Gilt immer!
 
