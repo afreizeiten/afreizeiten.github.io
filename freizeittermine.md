@@ -6,6 +6,17 @@ title: Termine
 
 ---------------------------------------------------------------------
 
+Segeln an der Ostsee mit A-Leuten auf der Stella Maris
+
+Freitag, 01.9.- Samstag, 09.9.2017 
+
+Abfahrt und Ankunft im Hafen von Rostock 
+Anbieterin: Vera, Tel. 06222/660709 (AB)  oder 2012vera@gmail.com
+
+[Segeltörn an der Ostsee.pdf](/pdf/Segeltörn an der Ostsee.pdf)
+
+---------------------------------------------------------------------
+
 A-Freizeiten in Allmannsried - Allgäu 2017
 
 ![allmannsried](/images/allmansried.jpeg)
