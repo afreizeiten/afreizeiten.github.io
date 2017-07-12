@@ -9,5 +9,5 @@ title: Veranstalter
 - Erich (Schaippach)
 - Gerhard (Türkei)
 - Gerti (Sylt, Reit im Winkl)
-- Mechtild, Petra (Bremen, Westfriesland)
+- Mechtild, Günter (Bremen, Westfriesland)
 - Wolfgang (Allmannsried)
