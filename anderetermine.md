@@ -54,6 +54,13 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
 
+### 3. A-Männertreffen in Marburg
+"Meine Wege, deine Wege unser Weg"
+
+29. Sept. bis 3. Okt. 2017
+
+Infos unter <https://www.e-und-a.net/events/marburg>
+
 ### Peter lädt ein zur Mini-Freizeit in MINDEN
 
 13.- 15. Oktober 2017
