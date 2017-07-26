@@ -57,7 +57,7 @@ Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
 ### 3. A-Männertreffen in Marburg
 "Meine Wege, deine Wege unser Weg"
 
-29. Sept. bis 3. Okt. 2017
+29. September bis 3. Oktober 2017
 
 Infos unter <https://www.e-und-a.net/events/marburg>
 
