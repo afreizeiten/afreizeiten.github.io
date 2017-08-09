@@ -23,12 +23,6 @@ A-Freizeiten in Allmannsried - Allgäu 2017
 
 Freizeiten von Wolfgang 
 
-1.Freizeit 31.7.-12.8.2017 (12Tage)
-
-[Sommer in Allmannsried 1.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_1.pdf)
-
-PDF-Dokument [70 KB]
-
 2.Freizeit 27.8.-5.9.2017   (9Tage)
 
 [Sommer in Allmannsried 2.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_2.pdf)
