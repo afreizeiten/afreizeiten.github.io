@@ -85,7 +85,7 @@ PDF-Dokument [1.4 MB]
 
 Ostern in der Bremer Schweiz
 
-![Schaippach](/images/schaippach.jpeg)
+![bremen](/images/bremen.jpeg)
 
 Freizeit von Hans Günter und Mechtild
 
