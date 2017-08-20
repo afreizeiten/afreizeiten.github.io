@@ -76,6 +76,11 @@ weitere Infos hier:
 [MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN 2017.pdf)
 PDF-Dokument [16 KB]
 
+Vorankündigung für 2018:
+
+im nächsten Jahr findet die Mini-Freizeit vom 09.- 11. März statt
+
+
 ### Mini-Freizeit in Bremen-Blumenthal
 
 25.08.-27.08.2017
