@@ -73,8 +73,8 @@ bitte auch noch mal sorgfältig neu lesen, wegen der Neuerungen.
 Neu: statt Matratzenlager im Domkeller jetzt Schlafmöglichkeiten in Appartements!
 
 weitere Infos hier:
-[MINIFREIZEITEN 2017.pdf](/pdf/MINIFREIZEITEN 2017.pdf)
-PDF-Dokument [16 KB]
+[MINIFREIZEITEN 2017.pdf](/pdf/Mini-Freizeit Minden 2017.pdf)
+PDF-Dokument [244 KB]
 
 Vorankündigung für 2018:
 
