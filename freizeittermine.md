@@ -78,3 +78,16 @@ Freizeit von Erich
 
 [Ostern 2018 in Schaippach.pdf](/pdf/Ostern in Schaippach 2018.pdf)
 PDF-Dokument [1.4 MB]
+
+----------------------------------------------------------------------------
+
+29.03.2018 – 07.04.2018
+
+Ostern in der Bremer Schweiz
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Hans Günter und Mechtild
+
+[Ostern-Freizeit Bremen 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
+PDF-Dokument
