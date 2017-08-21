@@ -63,7 +63,7 @@ Infos unter <https://www.e-und-a.net/events/marburg>
 
 ### Peter lädt ein zur Mini-Freizeit in MINDEN
 
-13.- 15. Oktober 2017
+20.- 22. Oktober 2017
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
