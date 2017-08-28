@@ -80,17 +80,6 @@ Vorankündigung für 2018:
 
 im nächsten Jahr findet die Mini-Freizeit vom 09.- 11. März statt
 
-
-### Mini-Freizeit in Bremen-Blumenthal
-
-25.08.-27.08.2017
-
-![Bremen](images/Leiste_Herbst_Bremen.jpg)
-
-Freizeit von Mechtild und Nanette
-
-[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit 2017 Bremen.pdf)
-
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
