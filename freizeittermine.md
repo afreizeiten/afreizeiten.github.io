@@ -91,3 +91,15 @@ Freizeit von Hans Günter und Mechtild
 
 [Ostern-Freizeit Bremen 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
 PDF-Dokument
+
+----------------------------------------------------------------------------
+
+25.06. - 07.07.2018
+
+Sommerfreizeit in Binz/Rügen
+
+Freizeit von Gerhard und Mechtild
+
+[Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
+
+----------------------------------------------------------------------------
