@@ -73,7 +73,7 @@ PDF-Dokument
 
 Sommerfreizeit in Binz/Rügen
 
-Freizeit von Gerhard und Mechtild
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
 
