@@ -5,7 +5,7 @@ title: Veranstalter
 # Veranstalter
 
 - Selbsthilfe-Freizeitwerk e.V. - unterschiedliche TeamerInnen (Blankenheim,
-  Grömitz)
+  Binz/Rügen)
 - Erich (Schaippach)
 - Gerhard (Türkei)
 - Gerti (Sylt, Reit im Winkl)
