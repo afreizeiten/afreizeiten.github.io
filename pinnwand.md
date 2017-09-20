@@ -12,6 +12,8 @@ Sie wohnt in Kerpen bei Köln. Nachricht an:
 
 <ruth.scholz.50@t-online.de>
 
+--------------------------------------------------------------------
+
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
