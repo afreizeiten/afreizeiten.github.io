@@ -73,6 +73,8 @@ PDF-Dokument
 
 Sommerfreizeit in Binz/Rügen
 
+![Binz](/images/Leiste Binz neu2.png)
+
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
