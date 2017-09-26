@@ -84,7 +84,7 @@ im nächsten Jahr findet die Mini-Freizeit vom 09.- 11. März statt
 
 ## “Offen für Alle”
 
-> 09. bis 12.02.2018
+vom 09. bis 12.02.2018
  
 Infos unter <https://www.e-und-a.net/events>
 
