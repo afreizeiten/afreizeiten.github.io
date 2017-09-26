@@ -80,6 +80,14 @@ Vorankündigung für 2018:
 
 im nächsten Jahr findet die Mini-Freizeit vom 09.- 11. März statt
 
+### EA-Karnevaltreffen in Fulda
+
+“Offen für Alle”
+
+9. bis 12. Februar 2018
+ 
+Infos unter <https://www.e-und-a.net/events>
+
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
