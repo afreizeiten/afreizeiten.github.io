@@ -56,18 +56,7 @@ Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
 
 ### Peter lädt ein zur Mini-Freizeit in MINDEN
 
-20.- 22. Oktober 2017
-
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
-
-auch für die, die schon dabei waren:
-bitte auch noch mal sorgfältig neu lesen, wegen der Neuerungen.
-
-Neu: statt Matratzenlager im Domkeller jetzt Schlafmöglichkeiten in Appartements!
-
-weitere Infos hier:
-[MINIFREIZEITEN 2017.pdf](/pdf/Mini-Freizeit Minden 2017.pdf)
-PDF-Dokument [244 KB]
 
 Vorankündigung für 2018:
 
