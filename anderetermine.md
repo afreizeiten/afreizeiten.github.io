@@ -64,11 +64,11 @@ im nächsten Jahr findet die Mini-Freizeit vom 09.- 11. März statt
 
 ### EA-Karnevaltreffen in Fulda
 
-## “Offen für Alle”
+## “Wandel”
 
 vom 09. bis 12.02.2018
  
-Infos unter <https://www.e-und-a.net/events>
+Infos unter <https://www.e-und-a.net/events/fulda>
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
