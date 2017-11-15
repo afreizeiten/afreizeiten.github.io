@@ -57,6 +57,17 @@ PDF-Dokument
 
 ----------------------------------------------------------------------------
 
+09.05. - 13.05.2018
+
+12-Schritte-Wanderung in Arnsberg/Sauerland
+
+Freizeit von Eva
+
+[12-Schritte-Wanderung 2018.pdf](/pdf/12-Schritte-Wanderung 2018.pdf)
+PDF-Dokument [213 kB]
+
+----------------------------------------------------------------------------
+
 25.06. - 07.07.2018
 
 Sommerfreizeit in Binz/Rügen
