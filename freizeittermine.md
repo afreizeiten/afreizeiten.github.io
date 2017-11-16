@@ -63,8 +63,7 @@ PDF-Dokument
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[12-Schritte-Wanderung 2018.pdf](/pdf/12-Schritte-Wanderung 2018.pdf)
-PDF-Dokument [213 kB]
+[12-Schritte-Wanderung 2018.pdf]
 
 ----------------------------------------------------------------------------
 
