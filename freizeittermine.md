@@ -78,3 +78,25 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 [Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
 
 ----------------------------------------------------------------------------
+
+30.07. - 11.08.2018
+
+1. Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+Freizeit von Wolfgang
+
+[1. a-freizeit 2018 Ausschreibung.pdf](/pdf/1. a-freizeit 2018 Ausschreibung.pdf)
+
+-----------------------------------------------------------------------------
+
+28.08. - 06.09.2018
+
+2. Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+Freizeit von Wolfgang
+
+[2. A-Freizeit 2018.pdf](/pdf/2. A-Freizeit 2018.pdf)
