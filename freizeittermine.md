@@ -61,6 +61,8 @@ PDF-Dokument
 
 12-Schritte-Wanderung in Arnsberg/Sauerland
 
+![Leiste Arnsberg](/images/Leiste Arnsberg.jpg)
+
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [12-Schritte-Wanderung 2018.pdf](/pdf/12-Schritte-Wanderung 2018.pdf)
