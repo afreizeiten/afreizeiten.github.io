@@ -81,7 +81,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 30.07. - 11.08.2018
 
-1. Sommerfreizeit in Allmannsried
+Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
@@ -93,7 +93,7 @@ Freizeit von Wolfgang
 
 28.08. - 06.09.2018
 
-'2. Sommerfreizeit in Allmannsried
+Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
