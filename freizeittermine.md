@@ -93,7 +93,7 @@ Freizeit von Wolfgang
 
 28.08. - 06.09.2018
 
-2. Sommerfreizeit in Allmannsried
+'2. Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
