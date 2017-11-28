@@ -9,14 +9,11 @@ Hier findet Ihr Veranstaltungen, die keine A-Freizeiten sind, aber von denen
 wir glauben, dass sie Euch interessieren könnten. Bitte teilt uns Termine und
 Veranstaltungen mit, die in diese Kategorie passen.
 
-
 ### Kuschelmeeting (offen für alle A-Gruppen-Angehörigen):
+
 Freitags 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr)
 Zur Zeit findet das K-Meeting in Bonn-Beuel, Neu-Vilich, Nähe Autobahnabfahrt
 Pützchen, statt. 
-
-### ACHTUNG: Die Meetingadresse ändert sich ab Januar 2017!
-Wer bereits informiert ist, bitte diskret an andere A-Freunde weitergeben.
 
 Kontakt: Telefon: Raimund 02241-319386
 
@@ -33,7 +30,6 @@ im Schloss Glarisegg am Bodensee, Nähe Konstanz, 19:30-21:00
 Spendenbasis
 
 Infos unter 01782090444 (Monika)
-
 
 ### Freizeitwerk Stammtisch!
 
