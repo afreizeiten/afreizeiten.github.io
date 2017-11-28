@@ -46,10 +46,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
  
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-### Kölner Komitee für Ehemalige aus 12- Schritte - Kliniken
-
-Die Ehemaligengruppe "Kölner Komitee" hat sich aufgelöst.
-
 ### Peter lädt ein zur Mini-Freizeit in MINDEN
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
