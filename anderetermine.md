@@ -19,8 +19,8 @@ Kontakt: Telefon: Raimund 02241-319386
 
 ### Kuschelmeeting Hannover (offen für alle A-Gruppen-Angehörigen)
 
-> Ab Februar 2017 beginnt vorerst testweise 1x pro Monat in Hannover ein Kuschelmeeting 
-> für alle A-Gruppen-Angehörigen. Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
+> Kuschelmeeting 1 - 2 x pro Monat in Hannover für alle A-Gruppen-Angehörigen 
+> und Ehemalige der 12-Schritte-Kliniken. Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
 > Freue mich sehr über Nachricht. Kontaktieren könnt Ihr mich (Patrice) unter:
 > 0511-76385571 oder per Email: <menschenwissenschaftler@yahoo.de>
 
