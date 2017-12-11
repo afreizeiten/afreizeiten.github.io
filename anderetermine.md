@@ -46,13 +46,11 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
  
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-### Peter lädt ein zur Mini-Freizeit in MINDEN
+### Peter lädt ein zur Mini-Freizeit in MINDEN vom 09.- 11. März 2018
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
-Vorankündigung für 2018:
-
-im nächsten Jahr findet die Mini-Freizeit vom 09.- 11. März statt
+[Minden 2018.pdf](/pdf/Minden 2018.pdf)
 
 ### EA-Karnevaltreffen in Fulda
 
