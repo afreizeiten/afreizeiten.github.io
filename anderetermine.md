@@ -50,7 +50,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
-[Minden 2018.pdf](/pdf/Minden 2018.pdf)
+[Minden 2018.pdf](/pdf/Minden 2018.png)
 
 ### EA-Karnevaltreffen in Fulda
 
