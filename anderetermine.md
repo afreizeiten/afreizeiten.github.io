@@ -50,7 +50,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
-[Einladung Mini-Freizeit 2018 Minden.pdf](/pdf/ Einladung Mini-Freizeit 2018 Minden.pdf)
+[Einladung Mini-Freizeit 2018 Minden.pdf](/pdf/Einladung Mini-Freizeit 2018 Minden.pdf)
 
 ### EA-Karnevaltreffen in Fulda
 
