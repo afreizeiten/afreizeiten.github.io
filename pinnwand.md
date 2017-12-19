@@ -12,8 +12,11 @@ Biete oder suche Mitfahrgelegenheit für die A-Winter-Freizeit in Blankenheim/Ei
 <chirlu.mai@gmail.com>!
 
 Suche für die Hinfahrt am 26.12. jemanden, der mich von Bonn (Beuel) nach Blankenheim zur Winterfreizeit mitnehmen kann.
-Bitte unter <Dunkelmelli@gmx.de> bei mir melden 
-Danke 
+Bitte unter <Dunkelmelli@gmx.de> bei mir melden. 
+Danke!
+
+Petra kommt am 26.12. um 15.32 Uhr am Bahnhof Blankenheim an und möchte mich sich gerne gegen Spritkostenerstattung abholen lassen.
+Sie ist unter der Handy-Nr. 01781529700 zu erreichen!
 
 ## Mitfahrgelegenheit für die Freizeit Binz auf Rügen, Juni 2018
 
