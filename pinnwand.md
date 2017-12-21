@@ -15,8 +15,11 @@ Suche für die Hinfahrt am 26.12. jemanden, der mich von Bonn (Beuel) nach Blank
 Bitte unter <Dunkelmelli@gmx.de> bei mir melden. 
 Danke!
 
-Petra kommt am 26.12. um 15.32 Uhr am Bahnhof Blankenheim an und möchte mich sich gerne gegen Spritkostenerstattung abholen lassen.
+Petra kommt am 26.12. um 15.32 Uhr am Bahnhof Blankenheim an und möchte sich gerne gegen Spritkostenerstattung abholen lassen.
 Sie ist unter der Handy-Nr. 01781529700 zu erreichen!
+
+Cristina kommt auch am 26.12. um 15.32 Uhr am Bahnhof Blankenheim an. Ich möchte mich gerne gegen Spritkostenerstattung abholen lassen. 
+Ich bin unter der Handy-Nr. 0172-4525643 zu erreichen!
 
 ## Mitfahrgelegenheit für die Freizeit Binz auf Rügen, Juni 2018
 
