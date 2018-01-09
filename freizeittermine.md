@@ -6,31 +6,6 @@ title: Termine
 
 ---------------------------------------------------------------------
 
-26.12.2017 - 05.01.2018
-
-Winter-Freizeit in Blankenheim/Eifel
-
-![Blankenheim](/images/blankenheim.jpeg)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[Anmeldung Blankenheim.pdf](/pdf/2017_Blankenheim neu.pdf)
-
----------------------------------------------------------------------
-
-27.12.2017 - 04.01.2018
-
-Weihnachten in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
-PDF-Dokument [1.4 MB]
-
-----------------------------------------------------------------------------
-
 29.03.2018 – 07.04.2018
 
 Ostern in der Schaippachmühle
