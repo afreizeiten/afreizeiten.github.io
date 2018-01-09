@@ -53,6 +53,10 @@ Emotions Anonymous
   <http://www.ea-selbsthilfe.net>
   <http://www.emotionsanonymous.ch>
 
+FA
+Food Addicts in Recovery Anonymous - Anonyme Esssüchtige in Genesung
+<http://www.foodaddicts.org/deutsch>
+
 GA
 Gamblers   Anonymous 
 Anonyme Spieler
