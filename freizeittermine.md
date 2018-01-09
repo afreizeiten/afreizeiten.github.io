@@ -52,9 +52,9 @@ Sommerfreizeit in Binz/Rügen
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
-
 Derzeit ist die Freizeit ausgebucht. Gern kannst du dich auf eine Warteliste setzen lassen.
+
+[Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
 
 ----------------------------------------------------------------------------
 
