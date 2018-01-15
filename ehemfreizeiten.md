@@ -25,7 +25,10 @@ Weihnachten in der Schaippachmühle
 Freizeit von Erich
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
-PDF-Dokument [1.4 MB]
+
+Ostern 2017 in der Schaippachmühle
+
+[Ostern_2017_in_Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
 
 ----------------------------------------------------------------------------
 
