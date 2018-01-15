@@ -54,8 +54,7 @@ Freizeiten von Wolfgang
 
 [2017 Sommerfreizeit Allmannsried1.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_1.pdf)
 
-[2017 Sommerfreizeit Allmannsried2.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_2.pdf
-
+[2017 Sommerfreizeit Allmannsried2.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_2.pdf)
 
 ----------------------------------------------------------------------------
 
