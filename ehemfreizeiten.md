@@ -64,7 +64,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 Freizeiten vom Selbsthilfe Freizeitwerk e.V.
 
-[2017 Sommerfreizeit Groemitz.pdf](/pdf/2017 Sommerfreizeit Groemitz.pdf)
+[2017 Sommerfreizeit Groemitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
 
 [2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
 
