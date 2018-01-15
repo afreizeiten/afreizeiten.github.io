@@ -25,6 +25,9 @@ Freizeit von Wolfgang
 
 12.06.2016 - 26.06.2016
 
+[2016 Sommerfreizeit Allmannsried1.pdf](/pdf/Allmannsried1-2016.pdf)
+PDF-Dokument [116 KB]
+
 Sommerfreizeit in Grömitz/Ostsee
 
 ![grömitz](/images/groemitz.jpeg)
