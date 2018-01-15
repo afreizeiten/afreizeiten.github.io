@@ -41,29 +41,27 @@ Freizeit von Mechtild
 
 ----------------------------------------------------------------------------
 
-26.07.2016 - 07.08.2016
-
-Sommerfreizeit in Allmannsried
+Sommerfreizeiten in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-Freizeit von Wolfgang
+Freizeiten von Wolfgang
+
+[2017 Sommerfreizeit Allmannsried1.pdf](/pdf/Allmannsried1-2017.pdf)
 
 [2016 Sommerfreizeit Allmannsried1.pdf](/pdf/Allmannsried1-2016.pdf)
-PDF-Dokument [116 KB]
 
 ----------------------------------------------------------------------------
 
-12.06.2016 - 26.06.2016
-
-Sommerfreizeit in Grömitz/Ostsee
+Sommerfreizeiten in Grömitz/Ostsee
 
 ![grömitz](/images/groemitz.jpeg)
 
-Freizeit vom Selbsthilfe Freizeitwerk e.V.
+Freizeiten vom Selbsthilfe Freizeitwerk e.V.
+
+[2017 Sommerfreizeit Groemitz.pdf](/pdf/2017 Sommerfreizeit Groemitz.pdf)
 
 [2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
-PDF-Dokument [116 KB]
 
 ----------------------------------------------------------------------------
 
