@@ -29,6 +29,18 @@ PDF-Dokument [1.4 MB]
 
 ----------------------------------------------------------------------------
 
+29.10.-04.11.2017
+
+Herbst-Freizeit in Bremen-Blumenthal
+
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild
+
+[Herbst-Freizeit Bremen.pdf](pdf/Einladung Herbst 2017 Bremen 2.pdf )
+
+----------------------------------------------------------------------------
+
 26.07.2016 - 07.08.2016
 
 Sommerfreizeit in Allmannsried
