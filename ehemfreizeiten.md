@@ -65,4 +65,10 @@ Freizeiten vom Selbsthilfe Freizeitwerk e.V.
 
 ----------------------------------------------------------------------------
 
+Sylt 2017
 
+Freizeit von Gerti
+
+[Sylt Freizeit 2017.pdf](/pdf/Sylt_Freizeit_2017_Adresse_anonym.pdf)
+
+----------------------------------------------------------------------------
