@@ -37,21 +37,30 @@ Freizeiten von Erich
 
 ----------------------------------------------------------------------------
 
-29.10.-04.11.2017
-
-Herbst-Freizeit in Bremen-Blumenthal
+Herbst-Freizeiten in Bremen-Blumenthal
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
 
-Freizeit von Mechtild
+Freizeiten von Mechtild
 
-[Herbst-Freizeit Bremen.pdf](pdf/Einladung Herbst 2017 Bremen 2.pdf )
+[Herbst-Freizeit Bremen 2017.pdf](pdf/Einladung Herbst 2017 Bremen 2.pdf )
+
+[Herbst-Freizeit Bremen 2016.pdf](pdf/2016 Herbst in der Bremer Schweiz.pdf)
+
 
 Osterfreizeiten in Bremen
 
 [Ostern 2017.pdf](pdf/2017 Ostern in Blumenthal.pdf)
 
 [Ostern 2016.pdf](pdf/BremenOstern2016.pdf)
+
+Freizeiten von Mechtild
+
+Freizeit in Westfriesland
+
+[Westfriesland 2017.pdf](pdf/BremenOstern2016.pdf)
+
+Freizeit von Mechtild
 
 ----------------------------------------------------------------------------
 
