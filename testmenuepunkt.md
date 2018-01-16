@@ -1,4 +1,6 @@
 ---
 layout: default
-title: MENUTITLE
+title: Uralte Freizeiten
+
+# Urige Freizeiten
 ---
