@@ -10,9 +10,9 @@ Winter-Freizeiten in Blankenheim/Eifel
 
 Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
-[Blankenheim 2017.pdf](/pdf/2017_Blankenheim.pdf)
+[Blankenheim 2017](/pdf/2017_Blankenheim.pdf)
 
-[Blankenheim 2016](2016_Blankenheim.pdf)
+[Blankenheim 2016](/pdf/2016_Blankenheim.pdf)
 
 ----------------------------------------------------------------------------
 
@@ -24,11 +24,11 @@ Freizeiten von Erich
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
 
-[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2016.pdf)
+[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten_in_Schaippach_2016.pdf)
 
 Ostern in der Schaippachmühle
 
-[Ostern_2017_in_Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
+[Ostern 2017 in Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
 
 [Ostern 2016 in Schaippach.pdf](/pdf/ErichOsterfreizeit2016.pdf)
 
