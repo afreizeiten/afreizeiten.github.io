@@ -76,7 +76,7 @@ Incest Survivors Anonymous - Anonyme Inzestüberlebende
 
 Kuschelmeeting
  offen   für alle A-Gruppen-Angehörige
-   Kontakt:   siehe "Andere Termine"
+   Kontakt:   siehe "Andere Veranstaltungen"
 
 MTC
 Make Today Count - Selbsthilfegruppe für lebensbedrohlich Erkrankte
