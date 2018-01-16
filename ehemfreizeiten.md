@@ -24,7 +24,9 @@ Freizeiten von Erich
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
 
-[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten_in_Schaippach_2016.pdf)
+[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2016.pdf)
+
+Weihnachten 2016 in Schaippach.pdf
 
 Ostern in der Schaippachmühle
 
@@ -72,7 +74,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 Freizeiten vom Selbsthilfe Freizeitwerk e.V.
 
-[2017 Sommerfreizeit Groemitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
+[2017 Sommerfreizeit Grömitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
 
 [2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
 
