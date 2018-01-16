@@ -10,9 +10,9 @@ Winter-Freizeiten in Blankenheim/Eifel
 
 Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
-[Blankenheim 2017](/pdf/2017_Blankenheim.pdf)
+[Blankenheim 2017.pdf](/pdf/2017_Blankenheim.pdf)
 
-[Blankenheim 2016](/pdf/2016_Blankenheim.pdf)
+[Blankenheim 2016.pdf](/pdf/2016_Blankenheim.pdf)
 
 ----------------------------------------------------------------------------
 
@@ -49,9 +49,9 @@ Freizeit von Mechtild
 
 Osterfreizeiten in Bremen
 
-[Ostern 2017](pdf/2017 Ostern in Blumenthal.pdf)
+[Ostern 2017.pdf](pdf/2017 Ostern in Blumenthal.pdf)
 
-[Ostern 2016](pdf/BremenOstern2016.pdf)
+[Ostern 2016.pdf](pdf/BremenOstern2016.pdf)
 
 ----------------------------------------------------------------------------
 
