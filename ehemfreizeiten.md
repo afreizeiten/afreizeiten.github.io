@@ -46,8 +46,9 @@ Freizeit von Mechtild
 
 Osterfreizeiten in Bremen
 
-(pdf/BremenOstern2016.pdf)
-(pdf/BremenOstern2017.pdf)
+[Ostern 2017](pdf/2017 Ostern in Blumenthal.pdf)
+
+[Ostern 2016](pdf/BremenOstern2016.pdf)
 
 ----------------------------------------------------------------------------
 
