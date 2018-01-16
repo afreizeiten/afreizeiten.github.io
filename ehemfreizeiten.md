@@ -16,6 +16,12 @@ Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
 ----------------------------------------------------------------------------
 
+12-Schritte-Wanderung 2017 in Bad Herrenalb
+
+[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
+
+----------------------------------------------------------------------------
+
 Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
