@@ -54,13 +54,11 @@ Osterfreizeiten in Bremen
 
 [Ostern 2016.pdf](pdf/BremenOstern2016.pdf)
 
-Freizeiten von Mechtild
-
 Freizeit in Westfriesland
 
 [Westfriesland 2017.pdf](pdf/2017 Westfriesland_Holland.pdf)
 
-Freizeit von Mechtild
+Freizeiten von Mechtild
 
 ----------------------------------------------------------------------------
 
