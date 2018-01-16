@@ -4,33 +4,35 @@ title: Ehemalige Freizeiten
 ---
 # Ehemalige Freizeiten
 
-26.12.2017 bis 05.01.2018
-
-Winter-Freizeit in Blankenheim/Eifel
+Winter-Freizeiten in Blankenheim/Eifel
 
 ![Blankenheim](/images/blankenheim.jpeg)
 
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
-[Anmeldung  Blankenheim.pdf](/pdf/2017_Blankenheim.pdf)
+[Blankenheim 2017.pdf](/pdf/2017_Blankenheim.pdf)
+
+[Blankenheim 2016](2016_Blankenheim.pdf)
 
 ----------------------------------------------------------------------------
-
-27.12.2017 - 04.01.2018
 
 Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
-Freizeit von Erich
+Freizeiten von Erich
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
+
+[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2016.pdf)
 
 Ostern in der Schaippachmühle
 
 [Ostern_2017_in_Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
 
-[2016 Erich Osterfreizeit.pdf](/pdf/ErichOsterfreizeit2016.pdf)
+[Ostern 2016 in Schaippach.pdf](/pdf/ErichOsterfreizeit2016.pdf)
+
+Freizeiten von Erich
 
 ----------------------------------------------------------------------------
 
