@@ -44,6 +44,11 @@ Freizeit von Mechtild
 
 [Herbst-Freizeit Bremen.pdf](pdf/Einladung Herbst 2017 Bremen 2.pdf )
 
+Osterfreizeiten in Bremen
+
+(pdf/BremenOstern2016.pdf)
+(pdf/BremenOstern2017.pdf)
+
 ----------------------------------------------------------------------------
 
 Sommerfreizeiten in Allmannsried
