@@ -2,7 +2,9 @@
 layout: default
 title: Ehemalige Freizeiten
 ---
+
 # Ehemalige Freizeiten
+
 
 
 Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
@@ -24,11 +26,6 @@ Sommerfreizeiten in Grömitz/Ostsee
 [2017 Sommerfreizeit Grömitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
 
 [2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
-
-----------------------------------------------------------------------------
-12-Schritte-Wanderung 2017 in Bad Herrenalb
-
-[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
 
 ----------------------------------------------------------------------------
 
