@@ -15,7 +15,6 @@ Ostern in der Schaippachmühle
 Freizeit von Erich
 
 [Ostern 2018 in Schaippach.pdf](/pdf/Ostern in Schaippach 2018.pdf)
-PDF-Dokument [1.4 MB]
 
 ----------------------------------------------------------------------------
 
@@ -28,7 +27,6 @@ Ostern in der Bremer Schweiz
 Freizeit von Hans Günter und Mechtild
 
 [Ostern-Freizeit Bremen 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
-PDF-Dokument
 
 ----------------------------------------------------------------------------
 
@@ -66,7 +64,7 @@ Sommerfreizeit in Allmannsried
 
 Freizeit von Wolfgang
 
-[1. a-freizeit 2018 Ausschreibung.pdf](/pdf/1. a-freizeit 2018 Ausschreibung.pdf)
+[1. A-Freizeit 2018 Ausschreibung.pdf](/pdf/1. a-freizeit 2018 Ausschreibung.pdf)
 
 -----------------------------------------------------------------------------
 
