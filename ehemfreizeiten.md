@@ -4,6 +4,7 @@ title: Ehemalige Freizeiten
 ---
 # Ehemalige Freizeiten
 
+
 Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
 Winterfreizeiten
