@@ -27,7 +27,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 ----------------------------------------------------------------------------
 12-Schritte-Wanderung 2017 in Bad Herrenalb
 
-![Bad Herrenalb](/images/Leiste Bad Herrenalb.jpeg)
+![Bad Herrenalb](/images/Leiste Bad Herrenalb2.png)
 
 [12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
 
