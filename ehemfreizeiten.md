@@ -27,6 +27,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 ----------------------------------------------------------------------------
 12-Schritte-Wanderung 2017 in Bad Herrenalb
 
+![Bad Herrenalb](/images/Leiste Bad Herrenalb.jpeg)
+
 [12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
 
 ----------------------------------------------------------------------------
@@ -67,6 +69,8 @@ Herbst-Freizeiten in Bremen
 
 Freizeit in Westfriesland
 
+![Friesland](images/Leiste_Friesland.jpg)
+
 [Westfriesland 2017.pdf](pdf/2017 Westfriesland_Holland.pdf)
 
 ----------------------------------------------------------------------------
@@ -83,9 +87,9 @@ Sommerfreizeiten in Allmannsried
 
 ----------------------------------------------------------------------------
 
-Freizeiten von Gerti
+Freizeit von Gerti
 
-Sylt 2017
+![Sylt](/images/leiste-sylt-2.png)
 
 [Sylt Freizeit 2017.pdf](/pdf/Sylt_Freizeit_2017_Adresse_anonym.pdf)
 
