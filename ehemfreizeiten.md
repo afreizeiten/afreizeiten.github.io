@@ -6,11 +6,7 @@ title: Ehemalige Freizeiten
 # Ehemalige Freizeiten
 
 
-
-
-
-
-Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
+## Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
 Winterfreizeiten
 
@@ -37,7 +33,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ----------------------------------------------------------------------------
 
-Freizeiten von Erich
+## Freizeiten von Erich
 
 Weihnachten in der Schaippachmühle
 
@@ -55,7 +51,7 @@ Ostern in der Schaippachmühle
 
 ----------------------------------------------------------------------------
 
-Freizeiten von Mechtild
+## Freizeiten von Mechtild
 
 Osterfreizeiten in Bremen
 
@@ -79,7 +75,7 @@ Freizeit in Westfriesland
 
 ----------------------------------------------------------------------------
 
-Freizeiten von Wolfgang
+## Freizeiten von Wolfgang
 
 ![allmannsried](/images/allmansried.jpeg)
 
@@ -91,7 +87,7 @@ Sommerfreizeiten in Allmannsried
 
 ----------------------------------------------------------------------------
 
-Freizeit von Gerti
+## Freizeit von Gerti
 
 ![Sylt](/images/leiste-sylt-2.png)
 
