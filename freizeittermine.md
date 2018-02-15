@@ -77,3 +77,16 @@ Sommerfreizeit in Allmannsried
 Freizeit von Wolfgang
 
 [2. A-Freizeit 2018.pdf](/pdf/2. A-Freizeit 2018.pdf)
+
+-----------------------------------------------------------------------------
+
+30.09.-06.10.2018
+
+Herbst-Freizeit in Bremen-Blumenthal
+
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Hans Günter
+
+[Herbst-Freizeit Bremen.pdf](pdf/Herbst-Freizeit Bremen 2018)
+
