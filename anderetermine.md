@@ -52,14 +52,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 [Einladung Mini-Freizeit 2018 Minden.pdf](/pdf/Einladung Mini-Freizeit 2018 Minden.pdf)
 
-### EA-Karnevaltreffen in Fulda
-
-## “Wandel”
-
-vom 09. bis 12.02.2018
- 
-Infos unter <https://www.e-und-a.net/events/fulda>
-
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
