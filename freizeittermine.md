@@ -58,7 +58,7 @@ Derzeit ist die Freizeit ausgebucht. Gern kannst du dich auf eine Warteliste set
 
 17.07. - 27.07.2018
 
-28. Bernrieder 12-Schritte-Seminar
+'28. Bernrieder 12-Schritte-Seminar
 
 Freizeit von Elisabeth, Verena und Adalbert
 
