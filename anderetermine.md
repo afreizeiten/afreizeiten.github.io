@@ -52,11 +52,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
  
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-### Peter lädt ein zur Mini-Freizeit in MINDEN vom 09.- 11. März 2018
-
-(Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
-
-[Einladung Mini-Freizeit 2018 Minden.pdf](/pdf/Einladung Mini-Freizeit 2018 Minden.pdf)
+n.n.
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
