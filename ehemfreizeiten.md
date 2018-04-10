@@ -45,6 +45,8 @@ Weihnachten in der Schaippachmühle
 
 Ostern in der Schaippachmühle
 
+[Ostern 2018 in Schaippach.pdf](/pdf/Ostern in Schaippach 2018.pdf)
+
 [Ostern 2017 in Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
 
 [Ostern 2016 in Schaippach.pdf](/pdf/ErichOsterfreizeit2016.pdf)
@@ -56,6 +58,8 @@ Ostern in der Schaippachmühle
 Osterfreizeiten in Bremen
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+[Ostern-Freizeit Bremen 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
 
 [Ostern 2017.pdf](pdf/2017 Ostern in Blumenthal.pdf)
 
