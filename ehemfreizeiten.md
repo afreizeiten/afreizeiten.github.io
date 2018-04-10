@@ -59,7 +59,7 @@ Osterfreizeiten in Bremen
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
 
-[Ostern-Freizeit Bremen 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
+[Ostern 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
 
 [Ostern 2017.pdf](pdf/2017 Ostern in Blumenthal.pdf)
 
