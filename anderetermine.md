@@ -54,7 +54,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 in Neustadt an der Weinstraße
 
-vom 02. 10. bis 7.10.2018
+vom 02.10. bis 07.10.2018
 
 Infos unter <https://www.e-und-a.net/events/neustadt>
  
