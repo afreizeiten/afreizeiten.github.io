@@ -53,9 +53,10 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 ## EA-Herbsttreffen "Kraft und Hoffnung"
 
 in Neustadt an der Weinstraße
+
 vom 02. 10. bis 7.10.2018
 
-Infos unter https://www.e-und-a.net/events/neustadt
+Infos unter <https://www.e-und-a.net/events/neustadt>
  
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
