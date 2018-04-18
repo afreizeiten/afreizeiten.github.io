@@ -50,7 +50,7 @@ Sommerfreizeit in Allmannsried
 
 Freizeit von Wolfgang
 
-[1. A-Freizeit 2018 Ausschreibung.pdf](/pdf/1. a-freizeit 2018 Ausschreibung.pdf)
+[1. A-Freizeit 2018.pdf](/pdf/1. A-freizeit 2018.pdf)
 
 -----------------------------------------------------------------------------
 
