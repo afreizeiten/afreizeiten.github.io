@@ -85,3 +85,17 @@ Winter-Freizeit in Rothenburg ob der Tauber
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [Winter-Freizeit Rothenburg.pdf](pdf/Winter-Freizeit Rothenburg.pdf)
+
+-----------------------------------------------------------------------------
+
+18.04.2019 – 27.04.2019
+
+Ostern in Bremen-Blumenthal
+
+![bremen](/images/bremen.jpeg)
+
+Freizeit von Hans Günter und Mechtild
+
+[Oster-Freizeit Bremen 2019.pdf](/pdf/Oster-Freizeit Bremen 2019.pdf)
+
+-----------------------------------------------------------------------------
