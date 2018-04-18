@@ -76,3 +76,12 @@ Freizeit von Mechtild und Hans Günter
 
 [Herbst-Freizeit Bremen.pdf](pdf/Herbst-Freizeit Bremen 2018.pdf)
 
+-----------------------------------------------------------------------------
+
+26.12.2018 bis 05.01.2019
+
+Winter-Freizeit in Rothenburg ob der Tauber 
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[Winter-Freizeit Rothenburg.pdf](pdf/Winter-Freizeit Rothenburg.pdf)
