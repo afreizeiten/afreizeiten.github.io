@@ -88,7 +88,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 -----------------------------------------------------------------------------
 
-18.04.2019 – 27.04.2019
+18.04. – 27.04.2019
 
 Ostern in Bremen-Blumenthal
 
