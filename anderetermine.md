@@ -60,7 +60,7 @@ Infos unter <https://www.e-und-a.net/events/neustadt>
  
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-17. - 29. August 2018 in Bremen-Blumenthal
+17. bis 29. August 2018 in Bremen-Blumenthal
 
 Minifreizeit (Treffen für Ehemalige aus 12-Schritte Kliniken)
 
