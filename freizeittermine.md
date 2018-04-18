@@ -99,3 +99,13 @@ Freizeit von Hans Günter und Mechtild
 [Oster-Freizeit Bremen 2019.pdf](/pdf/Oster-Freizeit Bremen 2019.pdf)
 
 -----------------------------------------------------------------------------
+
+24.06. bis 05.07.2019
+
+Frühsommer in Westfriesland
+
+![Leiste_Friesland](/images/Leiste_Friesland.jpg)
+
+Freizeit von Mechtild und Hans Günter
+
+[Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf)
