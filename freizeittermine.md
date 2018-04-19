@@ -88,6 +88,18 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 -----------------------------------------------------------------------------
 
+27.12.2018 - 04.01.2019
+
+Weihnachten in der Schaippachmühle
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Erich
+
+[Weihnachten 2018 in Schaippach.pdf](/pdf/Weihnachten 2018 in Schaippach.pdf)
+
+-----------------------------------------------------------------------------
+
 18.04. – 27.04.2019
 
 Ostern in Bremen-Blumenthal
