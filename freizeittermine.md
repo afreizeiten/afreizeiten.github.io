@@ -102,6 +102,18 @@ Freizeit von Erich
 
 18.04. – 27.04.2019
 
+Ostern in der Schaippachmühle
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Erich
+
+[Ostern 2019 in Schaippach.pdf](/pdf/Ostern 2019 in Schaippach.pdf)
+
+-----------------------------------------------------------------------------
+
+18.04. – 27.04.2019
+
 Ostern in Bremen-Blumenthal
 
 ![bremen](/images/bremen.jpeg)
