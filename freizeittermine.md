@@ -84,7 +84,7 @@ Winter-Freizeit in Rothenburg ob der Tauber
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Winter-Freizeit Rothenburg.pdf](pdf/Winter-Freizeit Rothenburg.pdf)
+[Silvesterfreizeit Rothenburg 2018.pdf](pdf/Silvesterfreizeit Rothenburg.pdf)
 
 -----------------------------------------------------------------------------
 
