@@ -4,18 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
----------------------------------------------------------------------
-
-09.05. - 13.05.2018
-
-12-Schritte-Wanderung in Arnsberg/Sauerland
-
-![Leiste Arnsberg](/images/Leiste Arnsberg.jpg)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[12-Schritte-Wanderung 2018.pdf](/pdf/12-Schritte-Wanderung 2018.pdf)
-
 ----------------------------------------------------------------------------
 
 25.06. - 07.07.2018
