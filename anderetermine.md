@@ -9,13 +9,12 @@ Hier findet Ihr Veranstaltungen, die keine A-Freizeiten sind, aber von denen
 wir glauben, dass sie Euch interessieren könnten. Bitte teilt uns Termine und
 Veranstaltungen mit, die in diese Kategorie passen.
 
-### Kuschelmeeting (offen für alle A-Gruppen-Angehörigen):
+### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
-Freitags 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr)
-Zur Zeit findet das K-Meeting in Bonn-Beuel, Neu-Vilich, Nähe Autobahnabfahrt
-Pützchen, statt. 
+Jeden 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
+das K-Meeting in Bonn-Beuel, Neu-Vilich statt.
 
-Kontakt: Telefon: Raimund 02241-319386
+Kontakt / Auskunft über Raimund, Tel.: 02241-319386
 
 ### Kuschelmeeting Hannover (offen für alle A-Gruppen-Angehörigen)
 
