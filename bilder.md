@@ -4,7 +4,7 @@ title: Bilder
 ---
 ## Bilder von verschiedenen A-Freizeiten der letzten Jahre
 
-Abgebildete Personen müssen natürlich einverstanden sein.
+Abgebildete Personen haben ihre Zustimmung zur Veröffentlichung auf dieser Webseite gegeben.
 
 ![Wiedhölzlkaser 2014](/images/Wiedhölzlkaser2014.jpeg)
 
