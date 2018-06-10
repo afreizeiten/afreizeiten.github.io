@@ -16,7 +16,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 Derzeit ist die Freizeit ausgebucht. Gern kannst du dich auf eine Warteliste setzen lassen.
 
-[Sommerfreizeit Binz.pdf](/pdf/Sommerfreizeit Binz.pdf)
+[Sommerfreizeit Binz](/pdf/2018Binz.pdf)
 
 ----------------------------------------------------------------------------
 
@@ -72,7 +72,7 @@ Winter-Freizeit in Rothenburg ob der Tauber
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Silvesterfreizeit Rothenburg 2018.pdf](pdf/Silvesterfreizeit Rothenburg.pdf)
+[Silvesterfreizeit Rothenburg](pdf/2018Rothenburg.pdf)
 
 -----------------------------------------------------------------------------
 
