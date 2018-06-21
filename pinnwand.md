@@ -4,6 +4,28 @@ title: Pinnwand
 ---
 # Pinnwand
 
+Wer kann mich im Auto nach Bad Homburg mitnehmen?
+Zum EA-Treffen vom 03.August bis 05.August.
+Wohne im Kreis Göppingen.
+ 
+Martina
+<mb.62@gmx.de> 
+ 
+Wer kann mich im Auto mitnehmen ins Allgäu?
+Zur 2.Freizeit von Wolfgang in Allmannsried.
+Vom 28.August bis zuzm 06.September?
+Wohne im Kreis Göppingen.
+ 
+Martina
+<mb.62@gmx.de>
+
+Am 26.Dezember nach Rothenburg ob der Tauber?
+Zur Silvesterfreizeit.
+Wohne im Kreis Göppingen
+
+Martina
+<mb.62@gmx.de>
+
 ## Suche Mitfahrgelegenheit für die Binzfreizeit vom 01.07-07.07.2018
 
 von Münster nach Binz und zurück, ggf. auch Teilstrecke und "ein Weg".
