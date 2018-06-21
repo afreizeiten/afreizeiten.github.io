@@ -13,7 +13,7 @@ Martina
  
 Wer kann mich im Auto mitnehmen ins Allgäu?
 Zur 2.Freizeit von Wolfgang in Allmannsried.
-Vom 28.August bis zuzm 06.September?
+Vom 28.August bis 06.September?
 Wohne im Kreis Göppingen.
  
 Martina
