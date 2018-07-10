@@ -6,20 +6,6 @@ title: Termine
 
 ----------------------------------------------------------------------------
 
-25.06. - 07.07.2018
-
-Sommerfreizeit in Binz/Rügen
-
-![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-Derzeit ist die Freizeit ausgebucht. Gern kannst du dich auf eine Warteliste setzen lassen.
-
-[Sommerfreizeit Binz](/pdf/2018Binz.pdf)
-
-----------------------------------------------------------------------------
-
 17.07. - 27.07.2018
 
 '28. Bernrieder 12-Schritte-Seminar
