@@ -3,13 +3,6 @@ layout: default
 title: Pinnwand
 ---
 # Pinnwand
-
-Wer kann mich im Auto nach Bad Homburg mitnehmen?
-Zum EA-Treffen vom 03.August bis 05.August.
-Wohne im Kreis Göppingen.
- 
-Martina
-<mb.62@gmx.de> 
  
 Wer kann mich im Auto mitnehmen ins Allgäu?
 Zur 2.Freizeit von Wolfgang in Allmannsried.
