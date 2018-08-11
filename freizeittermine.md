@@ -4,18 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
-----------------------------------------------------------------------------
-
-30.07. - 11.08.2018
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit von Wolfgang
-
-[1. A-Freizeit 2018.pdf](/pdf/1. A-Freizeit 2018.pdf)
-
 -----------------------------------------------------------------------------
 
 28.08. - 06.09.2018
