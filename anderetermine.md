@@ -47,6 +47,13 @@ Wo: Köln, Osho-Place, Venloer St. 2
 
 ## Treffen von 12-Schritte Gruppen
 
+## Sommerfest der EKS-Gruppe Bonn am 9.September 2018
+ 
+Einladung für alle EKSler & sich zugehörig Fühlende zum Sommerfest am 9. September in Bonn
+
+[Sommerfest EKS Bonn.pdf](pdf/Sommerfest EKS 2018.pdf)
+
+
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
  
 ## EA-Herbsttreffen "Kraft und Hoffnung"
