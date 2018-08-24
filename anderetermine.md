@@ -63,6 +63,13 @@ vom 02.10. bis 07.10.2018
 
 Infos unter <https://www.e-und-a.net/events/neustadt>
  
+## 1st Convention Emotions Anonymous Europe
+
+ausgerichtet von EA Italia, Rom am 10.11.2018 und 12.11.2018
+
+[EA Convention Rom.pdf](pdf/LOCANDINA UK DEF.pdf)
+[Vorreservierung.pdf](pdf/SCHEDA PRENOTAZIONE UK DEF.pdf)
+
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
 
