@@ -68,6 +68,7 @@ Infos unter <https://www.e-und-a.net/events/neustadt>
 ausgerichtet von EA Italia, Rom am 10.11.2018 und 12.11.2018
 
 [EA Convention Rom.pdf](pdf/LOCANDINA UK DEF.pdf)
+
 [Vorreservierung.pdf](pdf/SCHEDA PRENOTAZIONE UK DEF.pdf)
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
