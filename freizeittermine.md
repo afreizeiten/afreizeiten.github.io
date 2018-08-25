@@ -6,18 +6,6 @@ title: Termine
 
 -----------------------------------------------------------------------------
 
-28.08. - 06.09.2018
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit von Wolfgang
-
-[2. A-Freizeit 2018.pdf](/pdf/2. A-Freizeit 2018.pdf)
-
------------------------------------------------------------------------------
-
 30.09.-06.10.2018
 
 Herbst-Freizeit in Bremen-Blumenthal
