@@ -71,19 +71,19 @@ ausgerichtet von EA Italia, Rom am 10.11.2018 und 12.11.2018
 
 [Vorreservierung.pdf](pdf/SCHEDA PRENOTAZIONE UK DEF.pdf)
 
-## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
+### Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-### Peter lädt ein zu 3 Mini-Freizeiten in MINDEN vom 26.- 28. Oktober 2018
+## Peter lädt ein zu Mini-Freizeiten in MINDEN vom 26.- 28. Oktober 2018
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
 [Einladung Mini-Freizeit Herbst 2018 Minden.pdf](/pdf/Mini-Freizeit Herbst 2018 Minden.pdf)
 
-## vom 15. - 17. März 2019
+vom 15. - 17. März 2019
 
 [Einladung Mini-Freizeit Frühjahr 2019 Minden.pdf](/pdf/Mini-Freizeit Frühjahr 2019 Minden.pdf)
 
-## vom 08. - 10. November 2019
+vom 08. - 10. November 2019
 
 [Einladung Mini-Freizeit Herbst 2019 Minden.pdf](/pdf/Mini-Freizeit Herbst 2019 Minden.pdf)
 
