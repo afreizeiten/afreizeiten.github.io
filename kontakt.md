@@ -13,6 +13,8 @@ Die Erreichbarkeit des Freizeitwerkes ist
 
 <vorstand@selbsthilfe-freizeitwerk.de> oder <http://www.selbsthilfe-freizeitwerk.de>
 
+## Impressum
+
 > Selbsthilfe-Freizeitwerk e.V.<br>
 > c/o Klaus Oltmanns<br>
 > Helmstrasse 4<br>
