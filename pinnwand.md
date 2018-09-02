@@ -3,8 +3,9 @@ layout: default
 title: Pinnwand
 ---
 # Pinnwand
- 
-Am 26.Dezember nach Rothenburg ob der Tauber?
+
+Wer kann mich im Auto mitnehmen
+am 26.Dezember nach Rothenburg ob der Tauber?
 Zur Silvesterfreizeit.
 Wohne im Kreis Göppingen
 
