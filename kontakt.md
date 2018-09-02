@@ -2,7 +2,7 @@
 layout: default
 title: Kontakt/Impressum
 ---
-# Kontakt/Impressum
+# Kontakt
 
 Fragen zu freien Plätze auf Freizeiten bitte direkt an die Freizeitveranstalter
 richten
@@ -13,7 +13,7 @@ Die Erreichbarkeit des Freizeitwerkes ist
 
 <vorstand@selbsthilfe-freizeitwerk.de> oder <http://www.selbsthilfe-freizeitwerk.de>
 
-## Impressum
+# Impressum
 
 > Selbsthilfe-Freizeitwerk e.V.<br>
 > c/o Klaus Oltmanns<br>
