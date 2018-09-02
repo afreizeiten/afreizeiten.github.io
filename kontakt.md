@@ -1,8 +1,8 @@
 ---
 layout: default
-title: Kontakt
+title: Kontakt/Impressum
 ---
-# Kontakt
+# Kontakt/Impressum
 
 Fragen zu freien Plätze auf Freizeiten bitte direkt an die Freizeitveranstalter
 richten
