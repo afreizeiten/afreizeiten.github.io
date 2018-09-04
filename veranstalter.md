@@ -4,8 +4,8 @@ title: Veranstalter
 ---
 # Veranstalter
 
-- Selbsthilfe-Freizeitwerk e.V. - unterschiedliche TeamerInnen (Blankenheim,
-  Binz/Rügen)
+- Selbsthilfe-Freizeitwerk e.V. - unterschiedliche TeamerInnen (Binz/Rügen,
+  Rothenburg, Blankenheim)
 - Erich (Schaippach)
 - Gerhard (Türkei)
 - Gerti (Sylt, Reit im Winkl)
