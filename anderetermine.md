@@ -57,6 +57,14 @@ vom 02.10. bis 07.10.2018
 
 Infos unter <https://www.e-und-a.net/events/neustadt>
  
+## Besinnungs-Wochenende in Fulda
+
+vom 01.März 2019 bis 03./04.März 2019
+
+Alle A-Gruppen-Zugehörigen sind wieder herzlich zu diesem Besinnungs- WE (das Karneval-WE ) eingeladen.
+
+[Besinnungs-WE in Fulda 2019 (Karneval-WE).pdf](/pdf/Fuldaflyer vom 1.0ktober 2018.oW.pdf)
+
 ## 1st Convention Emotions Anonymous Europe
 
 ausgerichtet von EA Italia, Rom am 10.11.2018 und 12.11.2018
