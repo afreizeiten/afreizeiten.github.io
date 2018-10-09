@@ -6,18 +6,6 @@ title: Termine
 
 -----------------------------------------------------------------------------
 
-30.09.-06.10.2018
-
-Herbst-Freizeit in Bremen-Blumenthal
-
-![Bremen](images/Leiste_Herbst_Bremen.jpg)
-
-Freizeit von Mechtild und Hans Günter
-
-[Herbst-Freizeit Bremen.pdf](pdf/Herbst-Freizeit Bremen 2018.pdf)
-
------------------------------------------------------------------------------
-
 26.12.2018 bis 05.01.2019
 
 Winter-Freizeit in Rothenburg ob der Tauber 
