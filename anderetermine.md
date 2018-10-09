@@ -49,14 +49,6 @@ Wo: Köln, Osho-Place, Venloer St. 2
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
  
-## EA-Herbsttreffen "Kraft und Hoffnung"
-
-in Neustadt an der Weinstraße
-
-vom 02.10. bis 07.10.2018
-
-Infos unter <https://www.e-und-a.net/events/neustadt>
- 
 ## Besinnungs-Wochenende in Fulda
 
 vom 01.März 2019 bis 03./04.März 2019
