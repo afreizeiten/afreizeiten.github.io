@@ -80,6 +80,8 @@ Osterfreizeiten in Bremen
 
 Herbst-Freizeiten in Bremen
 
+[Herbst-Freizeit Bremen 2018.pdf](pdf/Herbst-Freizeit Bremen 2018.pdf)
+
 [Herbst-Freizeit Bremen 2017.pdf](pdf/Einladung Herbst 2017 Bremen 2.pdf )
 
 [Herbst-Freizeit Bremen 2016.pdf](pdf/2016 Herbst in der Bremer Schweiz.pdf)
