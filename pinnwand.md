@@ -11,9 +11,11 @@ Wohne im Kreis Göppingen
 
 Martina
 <mb.62@gmx.de>
+
 -------------------------------------------------------------------------------
 
 Mitfahrgelegenheit zur WFZ-Rothenburg gesucht am 26.12. von München aus!
+
 Bitte bei 
 <rudolpho-gc@gmx.eu> melden.
 
