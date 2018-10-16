@@ -54,7 +54,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 EA-Karnevalwochenende in
 Neustadt an der Weinstraße
 
-vom 1.  bis 4.März 2019
+vom 1.  bis 4. März 2019
 
 Infos unter <https://www.e-und-a.net/events/neustadt>
 
