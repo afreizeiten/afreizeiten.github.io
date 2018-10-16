@@ -49,6 +49,15 @@ Wo: Köln, Osho-Place, Venloer St. 2
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
  
+## Alles ist im Fluss ...
+
+EA-Karnevalwochenende in
+Neustadt an der Weinstraße
+
+vom 1.  bis 4.März 2019
+
+Infos unter <https://www.e-und-a.net/events/neustadt>
+
 ## Besinnungs-Wochenende in Fulda
 
 vom 01.März 2019 bis 03./04.März 2019
