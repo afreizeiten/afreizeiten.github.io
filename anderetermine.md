@@ -11,7 +11,7 @@ Veranstaltungen mit, die in diese Kategorie passen.
 
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
-Jeden 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
+Jeden 1. und 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
 das K-Meeting in Bonn-Beuel, Neu-Vilich statt.
 
 Kontakt / Auskunft über Raimund, Tel.: 02241-319386
