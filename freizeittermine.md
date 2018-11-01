@@ -28,6 +28,18 @@ Freizeit von Erich
 
 -----------------------------------------------------------------------------
 
+08.03. – 29.03.2019
+
+A-Freizeit in der Türkei 
+
+Ab in die Wärme! Nach Side am Mittelmeer! 
+
+Freizeit von Gerhard
+
+[Anmeldung Türkei 2019.pdf](/pdf/Türkei Urlaub 2019 März.pdf)
+
+-----------------------------------------------------------------------------
+
 18.04. – 27.04.2019
 
 Ostern in der Schaippachmühle
