@@ -66,14 +66,6 @@ Alle A-Gruppen-Zugehörigen sind wieder herzlich zu diesem Besinnungs- WE (das K
 
 [Besinnungs-WE in Fulda 2019 (Karneval-WE).pdf](/pdf/Fuldaflyer vom 1.0ktober 2018.oW.pdf)
 
-## 1st Convention Emotions Anonymous Europe
-
-ausgerichtet von EA Italia, Rom am 10.11.2018 und 12.11.2018
-
-[EA Convention Rom.pdf](pdf/LOCANDINA UK DEF.pdf)
-
-[Vorreservierung.pdf](pdf/SCHEDA PRENOTAZIONE UK DEF.pdf)
-
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN 
