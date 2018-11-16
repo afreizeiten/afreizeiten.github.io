@@ -64,6 +64,18 @@ Freizeit von Hans Günter und Mechtild
 
 -----------------------------------------------------------------------------
 
+10.06. - 22.06.2019
+
+Sommerfreizeit in Binz/Rügen
+
+![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[Sommerfreizeit Binz.pdf](/pdf/2019_Binz_mit Logo.pdf)
+
+-----------------------------------------------------------------------------
+
 24.06. bis 05.07.2019
 
 Frühsommer in Westfriesland
