@@ -85,3 +85,28 @@ Frühsommer in Westfriesland
 Freizeit von Mechtild und Hans Günter
 
 [Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf)
+
+-----------------------------------------------------------------------------
+
+29.07. - 10.08.2019
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+Freizeit von Wolfgang
+
+[1. A-Freizeit 2019.pdf](/pdf/1. a-freizeit 2019 Ausschreibung.pdf)
+
+-----------------------------------------------------------------------------
+
+27.08. - 05.09.2019
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+Freizeit von Wolfgang
+
+[2. A-Freizeit 2019.pdf](/pdf/2. A-Freizeit 2019 Ausschreibung.pdf)
+
