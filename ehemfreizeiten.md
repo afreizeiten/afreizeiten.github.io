@@ -100,13 +100,13 @@ Freizeit in Westfriesland
 
 Sommerfreizeiten in Allmannsried
 
-[2017 Sommerfreizeit Allmannsried 1.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_1.pdf)
-
-[2017 Sommerfreizeit Allmannsried 2.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_2.pdf)
-
 [2018 Sommerfreizeit Allmannsried 1.pdf](/pdf/1. A-Freizeit 2018.pdf)
 
 [2018 Sommerfreizeit Allmannsried 2.pdf](/pdf/2. A-Freizeit 2018.pdf)
+
+[2017 Sommerfreizeit Allmannsried 1.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_1.pdf)
+
+[2017 Sommerfreizeit Allmannsried 2.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_2.pdf)
 
 ----------------------------------------------------------------------------
 
