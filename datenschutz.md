@@ -13,12 +13,14 @@ typischerweise unter anderem folgende Informationen (im Rahmen von sogenannten H
 * sowie – unter Umständen – die Seite, von der aus Sie zu uns gelangt sind (Referrer-Information).
 * Der Zeitpunkt der Anfrage.
 
-# Ein und Austragen in den Nwesletter
+# Ein- und Austragen in den Newsletter
 
 Zum Zweck der Information über die Freizeiten betreiben wir einen Newsletter. In diesen können Sie sich über das Formular <https://www.a-freizeiten.de/news.html> an bzw. abmelden.
-Dazu werden folgende Daten gespeichert.
+Dazu werden folgende Daten gespeichert:
 
-* Ihre email-Adresse. Sie wird nur zur Versendung der Informationen gespeichert. Bitte Achten sie beim Aufruf des formulars, dass sie vor der url __https__ eingeben! Nur so ist die Übertragung der Daten sicher.
+* Ihre email-Adresse 
+
+Sie wird nur zur Versendung der Informationen gespeichert. Bitte Achten sie beim Aufruf des Formulars, dass Sie vor der url __https__ eingegeben haben! Nur so ist die Übertragung der Daten sicher.
 
 <a rel="license" href="http://creativecommons.org/licenses/by/4.0/">
 <img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by/4.0/80x15.png" /></a>
