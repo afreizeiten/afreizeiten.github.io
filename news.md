@@ -7,10 +7,10 @@ title: Newsletter
 
 <form action="https://kundenserver.de/cgi-bin/mailinglist.cgi" method="POST" target="_blank">
   <input checked name="subscribe_r" type="radio" value="subscribe">
-  Ja, ich möchte mich auf die Mailingliste news@a-freizeiten.de eintragen.
+  Ja, ich möchte mich auf den Newsletter news@a-freizeiten.de eintragen.
   <br />
   <input name="subscribe_r" type="radio" value="unsubscribe">
-  Bitte streichen Sie mich wieder von der Mailingliste news@a-freizeiten.de.
+  Bitte streichen Sie mich wieder von dem Newsletter news@a-freizeiten.de.
   <br />
   Geben Sie Ihre E-Mail-Adresse ein:
   <br />
