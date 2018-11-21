@@ -20,7 +20,7 @@ Dazu werden folgende Daten gespeichert:
 
 * Ihre email-Adresse 
 
-Sie wird nur zur Versendung der Informationen bei 1und1 auf dem Kundenserver gespeichert. Bitte Achten sie beim Aufruf des Formulars, dass Sie vor der url __https__ eingegeben haben! Nur so ist die Übertragung der Daten sicher.
+Sie wird nur zur Versendung der Informationen bei 1und1 auf dem Kundenserver gespeichert. Bitte achten sie beim Aufruf des Formulars, dass Sie vor der url __https__ eingegeben haben! Nur so ist die Übertragung der Daten sicher.
 
 <a rel="license" href="http://creativecommons.org/licenses/by/4.0/">
 <img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by/4.0/80x15.png" /></a>
