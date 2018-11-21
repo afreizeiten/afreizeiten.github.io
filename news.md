@@ -3,7 +3,7 @@ layout: default
 title: Newsletter
 ---
 
-##Newsletter
+# Newsletter
 
 <form action="https://kundenserver.de/cgi-bin/mailinglist.cgi" method="POST" target="_blank">
   <input checked name="subscribe_r" type="radio" value="subscribe">
