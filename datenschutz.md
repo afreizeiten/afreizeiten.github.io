@@ -14,7 +14,7 @@ typischerweise unter anderem folgende Informationen (im Rahmen von sogenannten H
 * sowie – unter Umständen – die Seite, von der aus Sie zu uns gelangt sind (Referrer-Information).
 * Der Zeitpunkt der Anfrage.
 
-Wenn Sie nicht damit einverstanden sind, können HTTP-Cookies in ihrem Browser löschen.
+Wenn Sie nicht damit einverstanden sind, können Sie die HTTP-Cookies in ihrem Browser löschen.
 
 # Ein- und Austragen in den Newsletter
 
