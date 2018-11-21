@@ -14,6 +14,12 @@ Martina
 
 --------------------------------------------------------------------
 
+MFG gesucht von Freizeit Binz 2019 nach Freizeit in Holland zu Mechthild und Günters Freizeit, 
+Wolfgang, 
+<wmeisen@gmx.de>
+
+--------------------------------------------------------------------
+
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
