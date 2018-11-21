@@ -14,7 +14,7 @@ einzelnen Freizeitangeboten.
   <br />
   <input name="subscribe_r" type="radio" value="unsubscribe">
   Bitte streichen Sie mich wieder von dem Newsletter news@a-freizeiten.de.
-  <br />
+  <br /><br />
   Geben Sie Ihre E-Mail-Adresse ein:
   <br />
   <input maxlength="51" name="mailaccount_r" size="51" type="text">
