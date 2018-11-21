@@ -36,3 +36,7 @@ title: Newsletter
   <br />
   <input name="FBURLINVALID_L" type="hidden" value="https://kundenserver.de/mailinglist/invalid.de.html">
 </form>
+
+Rechtsgrundlage für die Verarbeitung der Daten ist Art 6 Abs. 1 lit. a DSGVO im Falle der Einwilligung. 
+Darüber hinaus richtet sich die Verarbeitung bei der Protokollierung der Anmeldung zum Newsletter nach 
+Art 6 Abs. 1 lit. f (berechtigtes Interesse).
