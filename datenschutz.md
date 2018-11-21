@@ -15,7 +15,7 @@ typischerweise unter anderem folgende Informationen (im Rahmen von sogenannten H
 
 # Ein- und Austragen in den Newsletter
 
-Zum Zweck der Information über die Freizeiten betreiben wir einen Newsletter. In diesen können Sie sich über das Formular <https://www.a-freizeiten.de/news.html> an bzw. abmelden.
+Zum Zweck der Information über die Freizeiten betreiben wir einen Newsletter. In diesen können Sie sich über das Formular <https://www.a-freizeiten.de/news.html> an- bzw. abmelden.
 Dazu werden folgende Daten gespeichert:
 
 * Ihre email-Adresse 
