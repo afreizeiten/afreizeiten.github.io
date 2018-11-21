@@ -1,3 +1,8 @@
+---
+layout: default
+title: Newsletter
+---
+
 ##Newsletter
 
 <form action="https://kundenserver.de/cgi-bin/mailinglist.cgi" method="POST" target="_blank">
