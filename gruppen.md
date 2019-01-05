@@ -10,8 +10,8 @@ AA: Anonyme Alkoholiker
 AAS: Anonyme Arbeitssüchtige
    <http://www.arbeitssucht.de>
 
-ACA, EKA: Adult Children of Alcoholics - Erwachsene  Kinder Alkoholkranker  Eltern
-   <http://www.adultchildren.org>
+ACA: Adult Children of Alcoholics - Erwachsene Kinder von Alkoholikern
+   <http://www.erwachsenekinder.org>
 
 EKS: Erwachsene Kinder von suchtkranken Eltern/Erziehern
    Die Adresse www.eksev.org ist zurzeit außer Betrieb.
