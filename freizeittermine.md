@@ -6,28 +6,6 @@ title: Termine
 
 -----------------------------------------------------------------------------
 
-26.12.2018 bis 05.01.2019
-
-Winter-Freizeit in Rothenburg ob der Tauber 
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[Silvesterfreizeit Rothenburg](pdf/2018Rothenburg.pdf)
-
------------------------------------------------------------------------------
-
-27.12.2018 - 04.01.2019
-
-Weihnachten in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Weihnachten 2018 in Schaippach.pdf](/pdf/Weihnachten 2018 in Schaippach.pdf)
-
------------------------------------------------------------------------------
-
 08.03. – 29.03.2019
 
 A-Freizeit in der Türkei 
