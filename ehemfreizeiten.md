@@ -14,6 +14,7 @@ Winter-Freizeit in Rothenburg ob der Tauber
 
 [Rothenburg 2018](pdf/2018Rothenburg.pdf)
 
+
 ![Blankenheim](/images/blankenheim.jpeg)
 
 [Blankenheim 2017.pdf](/pdf/2017_Blankenheim.pdf)
@@ -55,6 +56,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
+
+[Weihnachten 2018 in Schaippach.pdf](/pdf/Weihnachten 2018 in Schaippach.pdf)
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
 
