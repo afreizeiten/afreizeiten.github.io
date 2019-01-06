@@ -10,6 +10,10 @@ title: Ehemalige Freizeiten
 
 Winterfreizeiten
 
+Winter-Freizeit in Rothenburg ob der Tauber 
+
+[Rothenburg 2018](pdf/2018Rothenburg.pdf)
+
 ![Blankenheim](/images/blankenheim.jpeg)
 
 [Blankenheim 2017.pdf](/pdf/2017_Blankenheim.pdf)
