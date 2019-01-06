@@ -18,6 +18,10 @@ Bremen 2013
 
 Schaippachmühle 2012
 
+![Noer 2012](/images/Noer2012.jpeg)
+
+Noer 2012
+
 ![Schloss Noer 2012](/images/SchlossNoer2012.jpeg)
 
 Schloss Noer 2012
