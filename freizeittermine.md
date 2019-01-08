@@ -50,7 +50,7 @@ Sommerfreizeit in Binz/Rügen
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Sommerfreizeit Binz.pdf](/pdf/2019_Binz_mit Logo.pdf)
+[Sommerfreizeit Binz.pdf](/pdf/Binz_2019.pdf)
 
 -----------------------------------------------------------------------------
 
