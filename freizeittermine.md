@@ -95,7 +95,7 @@ Freizeit von Wolfgang
 DIESMAL  9  TAGE!
 Herbstfreizeit in Bremen-Blumenthal
 
-![Freizeit Bremen im Herbst](/images/Leiste_Herbst.jpg)
+![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
 
 Freizeit von Mechtild und Hans Günter
 
