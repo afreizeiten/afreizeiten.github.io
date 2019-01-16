@@ -88,3 +88,15 @@ Freizeit von Wolfgang
 
 [2. A-Freizeit 2019.pdf](/pdf/2. A-Freizeit 2019 Ausschreibung.pdf)
 
+-----------------------------------------------------------------------------
+
+10.10. - 19.10. 2019
+
+DIESMAL  9  TAGE!
+Herbstfreizeit in Bremen-Blumenthal
+
+![Freizeit Bremen im Herbst](/images/Leiste_Herbst.jpg)
+
+Freizeit von Mechtild und Hans Günter
+
+[Herbst-Freizeit Bremen.pdf](/pdf/Herbst-Freizeit Bremen.pdf)
