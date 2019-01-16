@@ -16,13 +16,6 @@ das K-Meeting in Bonn-Beuel, Neu-Vilich statt.
 
 Kontakt / Auskunft über Raimund, Tel.: 02241-319386
 
-### Kuschelmeeting Hannover (offen für alle A-Gruppen-Angehörigen)
-
-> Kuschelmeeting 1 - 2 x pro Monat in Hannover für alle A-Gruppen-Angehörigen 
-> und Ehemalige der 12-Schritte-Kliniken. Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
-> Freue mich sehr über Nachricht. Kontaktieren könnt Ihr mich (Patrice) unter:
-> 0511-76385571 oder per Email: <menschenwissenschaftler@yahoo.de>
-
 ### Kuschelmeeting
 für Frauen, jeden ersten Donnerstag im Monat
 im Schloss Glarisegg am Bodensee, Nähe Konstanz, 19:30-21:00
