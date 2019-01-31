@@ -18,7 +18,7 @@ EKS: Erwachsene Kinder von suchtkranken Eltern/Erziehern
    Bitte vorläufig folgende Website nutzen:
    <http://www.eksev.de>
 
-Al-Anon, Alateen: Angehörige der Anonymen Alkoholiker
+Al-Anon, Alateen: Angehörige und Freunde von Alkoholikern 
    <http://www.al-anon.de>
 
 AM: Anonyme Messies
