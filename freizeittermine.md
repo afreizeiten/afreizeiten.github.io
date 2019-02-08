@@ -111,17 +111,17 @@ Mit 12 Schritte Meetings und vielen wirklich tollen Sachen:
 
 Auroville, Ashrams, Meer etc.
 
-1. Freizeit vom
+'1. Freizeit vom
 
 02.11.2019 – 17.11.2019
 
-2. Freizeit vom
+'2. Freizeit vom
 
 25.01.2020 – 09.02.2020
 
-[Flyer Südindien.pdf](/pdf/Südindien.pdf)
+[Flyer Südindien.pdf](/pdf/Indien 2019 2020.pdf)
 
 Nähere Informationen erhaltet ihr unter 
 
-mailto:indienfranz@gmail.com
+<indienfranz@gmail.com>
 
