@@ -100,3 +100,28 @@ Herbstfreizeit in Bremen-Blumenthal
 Freizeit von Mechtild und Hans Günter
 
 [Herbst-Freizeit Bremen.pdf](/pdf/Herbst-Freizeit Bremen.pdf)
+
+-----------------------------------------------------------------------------
+
+# Spirituelles Südindien
+
+Franz aus Salzburg bietet zwei Freizeiten in Südindien an.
+
+Mit 12 Schritte Meetings und vielen wirklich tollen Sachen: 
+
+Auroville, Ashrams, Meer etc.
+
+1. Freizeit vom
+
+02.11.2019 – 17.11.2019
+
+2. Freizeit vom
+
+25.01.2020 – 09.02.2020
+
+[Flyer Südindien.pdf](/pdf/Südindien.pdf)
+
+Nähere Informationen erhaltet ihr unter 
+
+mailto:indienfranz@gmail.com
+
