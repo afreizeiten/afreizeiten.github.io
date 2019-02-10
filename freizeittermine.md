@@ -119,7 +119,9 @@ Auroville, Ashrams, Meer etc.
 
 25.01.2020 – 09.02.2020
 
-[Flyer Südindien.pdf](/pdf/Indien 2019 2020.pdf)
+[Flyer Südindien Teil 1.pdf](/pdf/Indien 2019 2020.pdf)
+[Flyer Südindien Teil 2.pdf](/pdf/Flyer Indien Teil 2.pdf)
+[Flyer Südindien Teil 3.pdf](/pdf/Flyer Indien Teil 3.pdf)
 
 Nähere Informationen erhaltet ihr unter 
 
