@@ -14,9 +14,7 @@ ACA: Adult Children of Alcoholics - Erwachsene Kinder von Alkoholikern
    <http://www.erwachsenekinder.org>
 
 EKS: Erwachsene Kinder von suchtkranken Eltern/Erziehern
-   Die Adresse www.eksev.org ist zurzeit außer Betrieb.
-   Bitte vorläufig folgende Website nutzen:
-   <http://www.eksev.de>
+   <http://www.eksev.org>
 
 Al-Anon, Alateen: Angehörige und Freunde von Alkoholikern 
    <http://www.al-anon.de>
