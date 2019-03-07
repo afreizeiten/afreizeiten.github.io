@@ -41,23 +41,7 @@ Wo: Köln, Osho-Place, Venloer St. 2
 ## Treffen von 12-Schritte Gruppen
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
- 
-## Alles ist im Fluss ...
 
-EA-Karnevalwochenende in
-Neustadt an der Weinstraße
-
-vom 1.  bis 4. März 2019
-
-Infos unter <https://www.e-und-a.net/events/neustadt>
-
-## Besinnungs-Wochenende in Fulda
-
-vom 01.März 2019 bis 03./04.März 2019
-
-Alle A-Gruppen-Zugehörigen sind wieder herzlich zu diesem Besinnungs- WE (das Karneval-WE ) eingeladen.
-
-[Besinnungs-WE in Fulda 2019 (Karneval-WE).pdf](/pdf/Fuldaflyer vom 1.0ktober 2018.oW.pdf)
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
