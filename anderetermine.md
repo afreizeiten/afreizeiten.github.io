@@ -57,6 +57,15 @@ vom 08. - 10. November 2019
 
 [Einladung Mini-Freizeit Herbst 2019 Minden.pdf](/pdf/Mini-Freizeit Herbst 2019 Minden.pdf)
 
+### EA-ler laden ein zu
+
+Schritt, Schritt, Schritt, ...
+EA-Besinnungstage in Donauwörth
+
+vom 19. bis 23. Juni 2019
+
+Flyer unter <www.e-und-a.net/events/donauwörth>
+
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
