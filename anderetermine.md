@@ -60,11 +60,12 @@ vom 08. - 10. November 2019
 ### EA-ler laden ein zu
 
 Schritt, Schritt, Schritt, ...
+
 EA-Besinnungstage in Donauwörth
 
 vom 19. bis 23. Juni 2019
 
-Flyer unter <www.e-und-a.net/events/donauwörth>
+Flyer unter <https://www.e-und-a.net/events/donauwörth>
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
