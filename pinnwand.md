@@ -17,7 +17,12 @@ An einer MFG zurück nach Köln am 22.6.2019 bin ich auch interessiert. Würde m
 
 --------------------------------------------------------------------
 
-Ich suche eine Mitfahrgelegenheit nach Binz aus dem Großraum Tübingen/ Stuttgart zum 10.06. und auch wieder zurück am 22.06.
+Ich suche eine Mitfahrgelegenheit aus Süd- oder Südwestdeutschland nach
+Binz zum 10.06. und auch wieder zurück am 22.06.
+
+oder kann gerne auch woanders zusteigen!
+
+Wer hat Platz im Auto?
 
 Liebe Grüße von Monika  0171 / 2180941, 
 
