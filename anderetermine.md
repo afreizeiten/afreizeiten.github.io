@@ -49,10 +49,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
-vom 15. - 17. März 2019
-
-[Einladung Mini-Freizeit Frühjahr 2019 Minden.pdf](/pdf/Mini-Freizeit Frühjahr 2019 Minden.pdf)
-
 vom 08. - 10. November 2019
 
 [Einladung Mini-Freizeit Herbst 2019 Minden.pdf](/pdf/Mini-Freizeit Herbst 2019 Minden.pdf)
