@@ -78,6 +78,16 @@ Freizeit von Wolfgang
 
 -----------------------------------------------------------------------------
 
+06.08. - 16.08.2019
+
+'29. Bernrieder 12-Schritte-Seminar 
+
+Freizeit von Elisabeth, Verena und Mati
+
+[29. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried 2019.pdf)
+
+-----------------------------------------------------------------------------
+
 27.08. - 05.09.2019
 
 Sommerfreizeit in Allmannsried
