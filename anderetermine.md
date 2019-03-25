@@ -65,15 +65,6 @@ Flyer unter <https://www.e-und-a.net/events/donauwörth>
 
 ------------------------------------------------------------------------------
 
-06.08. - 16.08.2019
-
-'29. Bernrieder 12-Schritte-Seminar 
-
-Freizeit von Elisabeth, Verena und Mati
-
-[29. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried 2019.pdf)
-
-
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
