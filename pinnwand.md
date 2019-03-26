@@ -19,7 +19,7 @@ Binz zum 10.06. und auch wieder zurück am 22.06. oder kann gerne auch woanders 
 
 Wer hat Platz im Auto?
 
-# Oder ich biete eine Mitfahrgelegenheit in meinem Auto an!
+## Oder ich biete eine Mitfahrgelegenheit in meinem Auto an!
 
 Wer will mitfahren oder zusteigen??
 
