@@ -15,11 +15,13 @@ Wolfgang,
 --------------------------------------------------------------------
 
 Ich suche eine Mitfahrgelegenheit aus Süd- oder Südwestdeutschland nach
-Binz zum 10.06. und auch wieder zurück am 22.06.
-
-oder kann gerne auch woanders zusteigen!
+Binz zum 10.06. und auch wieder zurück am 22.06. oder kann gerne auch woanders zusteigen!
 
 Wer hat Platz im Auto?
+
+# Oder ich biete eine Mitfahrgelegenheit in meinem Auto an!
+
+Wer will mitfahren oder zusteigen??
 
 Liebe Grüße von Monika  0171 / 2180941, 
 
