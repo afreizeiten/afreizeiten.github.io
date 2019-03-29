@@ -124,3 +124,7 @@ Sommerfreizeiten in Allmannsried
 [Sylt Freizeit 2017.pdf](/pdf/Sylt_Freizeit_2017_Adresse_anonym.pdf)
 
 ----------------------------------------------------------------------------
+
+## Freizeit von Gerhard
+
+[Anmeldung Türkei 2019.pdf](/pdf/Türkei Urlaub 2019 März.pdf)
