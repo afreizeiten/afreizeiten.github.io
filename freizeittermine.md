@@ -133,9 +133,8 @@ Nähere Informationen erhaltet ihr unter
 
 Skifreizeit in Ruhpolding
 
-![Reit](/images/reit.jpeg)
-
 Freizeit von Gerti
 
 [Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
 
+--------------------------------------------------------------------------------
