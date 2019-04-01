@@ -128,3 +128,14 @@ Nähere Informationen erhaltet ihr unter
 <indienfranz@gmail.com>
 
 --------------------------------------------------------------------------------
+
+23.02. - 01.03.2020
+
+Skifreizeit in Ruhpolding
+
+![Reit](/images/reit.jpeg)
+
+Freizeit von Gerti
+
+[Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
+
