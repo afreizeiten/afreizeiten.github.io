@@ -4,6 +4,15 @@ title: Termine
 ---
 # Freizeittermine
 
+25.05. - 08.06.2019
+
+A-Freizeit in Ligurien - Nähe Rapallo
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[A-Freizeit in Ligurien](/pdf/Ferien in Lugurie1.pdf)
+
+-----------------------------------------------------------------------------
 
 10.06. - 22.06.2019
 
