@@ -8,6 +8,9 @@ title: Termine
 
 A-Freizeit in Ligurien - Nähe Rapallo
 
+![Leiste Ligurien](/images/LeisteLigurien.png)
+
+
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [A-Freizeit in Ligurien](/pdf/Ferien in Lugurie1.pdf)
