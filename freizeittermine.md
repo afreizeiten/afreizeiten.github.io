@@ -4,37 +4,12 @@ title: Termine
 ---
 # Freizeittermine
 
------------------------------------------------------------------------------
-
-18.04. – 27.04.2019
-
-Ostern in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Ostern 2019 in Schaippach.pdf](/pdf/Ostern 2019 in Schaippach.pdf)
-
------------------------------------------------------------------------------
-
-18.04. – 27.04.2019
-
-Ostern in Bremen-Blumenthal
-
-![bremen](/images/bremen.jpeg)
-
-Freizeit von Hans Günter und Mechtild
-
-[Oster-Freizeit Bremen 2019.pdf](/pdf/Oster-Freizeit Bremen 2019.pdf)
-
------------------------------------------------------------------------------
 
 10.06. - 22.06.2019
 
 Sommerfreizeit in Binz/Rügen
 
-![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
+![Leiste Binz](/images/Leiste Binz neu2.png)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
