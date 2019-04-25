@@ -10,7 +10,7 @@ A-Freizeit in Ligurien - Nähe Rapallo
 
 ![Leiste Ligurien](/images/LeisteLigurien.png)
 
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+Freizeit vom Monika
 
 [A-Freizeit in Ligurien.pdf](/pdf/Ferien in Lugurie1.pdf)
 
