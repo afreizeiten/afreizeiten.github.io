@@ -23,7 +23,7 @@ Liebe Grüße von Monika  0171 / 2180941,
 
 ---------------------------------------------------------------------
 
-Dann suche ich eine Mitfahrgelegenheit nach Allmannsried auf die 1.Freizeit von Wolfgang am 29.Juli 2019.
+Ich suche eine Mitfahrgelegenheit nach Allmannsried auf die 1.Freizeit von Wolfgang am 29.Juli 2019.
  
 Ab zuhause, geht auch ab Ulm. Wohne in Eislingen, liegt im Kreis Göppingen. 
 
