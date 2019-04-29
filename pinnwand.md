@@ -8,12 +8,6 @@ title: Pinnwand
 ## Gesuche Mitfahrgelegenheit
 --------------------------------------------------------------------
 
-MFG gesucht von Freizeit Binz 2019 nach Freizeit in Holland zu Mechthild und Günters Freizeit, 
-Wolfgang, 
-<wmeisen@gmx.de>
-
---------------------------------------------------------------------
-
 Ich suche eine Mitfahrgelegenheit aus Süd- oder Südwestdeutschland nach
 Binz zum 10.06. und auch wieder zurück am 22.06. oder kann gerne auch woanders zusteigen!
 
