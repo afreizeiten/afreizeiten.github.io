@@ -87,6 +87,18 @@ Freizeit von Mechtild und Hans Günter
 
 -----------------------------------------------------------------------------
 
+27.12.2019 - 04.01.2020
+
+Weihnachten in der Schaippachmühle
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Erich
+
+[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit.pdf)
+
+----------------------------------------------------------------------------
+
 # Spirituelles Südindien
 
 Franz aus Salzburg bietet zwei Freizeiten in Südindien an.
