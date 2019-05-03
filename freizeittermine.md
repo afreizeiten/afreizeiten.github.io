@@ -136,3 +136,15 @@ Freizeit von Gerti
 [Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
 
 --------------------------------------------------------------------------------
+
+09.04.2020 – 18.04.2020
+
+Ostern in der Schaippachmühle
+
+![Schaippach](/images/schaippach.jpeg)
+
+Freizeit von Erich
+
+[Ostern 2020 in Schaippach.pdf](/pdf/Osterfreizeit.pdf)
+
+--------------------------------------------------------------------------------
