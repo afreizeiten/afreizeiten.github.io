@@ -131,6 +131,8 @@ Nähere Informationen erhaltet ihr unter
 
 Skifreizeit in Ruhpolding
 
+![Ruhpolding](/images/Leiste Ruhpolding.png)
+
 Freizeit von Gerti
 
 [Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
