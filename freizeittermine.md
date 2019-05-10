@@ -131,7 +131,7 @@ Nähere Informationen erhaltet ihr unter
 
 Skifreizeit in Ruhpolding
 
-![Leiste Ruhpolding](/images/"Leiste Ruhpolding.png")
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
 
 Freizeit von Gerti
 
