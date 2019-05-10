@@ -7,3 +7,4 @@ title: Aktuelles
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
 Ausfallkosten oder die Freizeit muss abgesagt werden.
+
