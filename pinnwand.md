@@ -15,8 +15,10 @@ Das Essen wird angeliefert, man braucht also nicht mehr selber zu kochen.
 
 Kontakt über:  <g.czech@online.de>
 
+---------------------------------------------------------------------------
+
 ## Gesuche Mitfahrgelegenheit
---------------------------------------------------------------------
+---------------------------------------------------------------------------
 
 Ich suche eine Mitfahrgelegenheit aus Süd- oder Südwestdeutschland nach
 Binz zum 10.06. und auch wieder zurück am 22.06. oder kann gerne auch woanders zusteigen!
