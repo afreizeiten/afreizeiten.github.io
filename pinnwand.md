@@ -4,6 +4,16 @@ title: Pinnwand
 ---
 # Pinnwand
 
+## Freier Platz auf der Freizeit in Westfriesland!
+
+Gabriele sucht eine Nachfolgerin für ein halbes Doppelzimmer zu 510,-
+Euro (gegebenenfalls Preisnachlass möglich) für die Freizeit in 
+Westfriesland vom 24.06. - 05.07.19
+
+Bitte beachten: inzwischen gibt es eine Neuerung für diese Freizeit: 
+Das Essen wird angeliefert, man braucht also nicht mehr selber zu kochen.
+
+Kontakt über:  <g.czech@online.de>
 
 ## Gesuche Mitfahrgelegenheit
 --------------------------------------------------------------------
