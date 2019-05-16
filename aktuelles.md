@@ -13,7 +13,7 @@ Näheres unter:
 
 -----------------------------------------------------
 
-Siehe <https:www.a-freizeiten.de/>
+Siehe <https://www.a-freizeiten.de/>
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
 Ausfallkosten oder die Freizeit muss abgesagt werden.
