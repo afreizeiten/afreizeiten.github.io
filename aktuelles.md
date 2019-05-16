@@ -5,15 +5,15 @@ title: Aktuelles
 
 ## Gilt immer!
 
-## Freier Platz auf der Freizeit in Westfriesland!
+## Freier Platz im Frauen-DZ auf der Freizeit in Westfriesland!
 
 Näheres unter:
 
-https://www.a-freizeiten.de/pinnwand.html
+<https://www.a-freizeiten.de/pinnwand.html>
 
 -----------------------------------------------------
 
-Siehe www.a-freizeiten.de/
+Siehe <www.a-freizeiten.de/>
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
 Ausfallkosten oder die Freizeit muss abgesagt werden.
