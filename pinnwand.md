@@ -11,7 +11,7 @@ Euro (gegebenenfalls Preisnachlass möglich) für die Freizeit in
 Westfriesland vom 24.06. - 05.07.19
 
 Bitte beachten: inzwischen gibt es eine Neuerung für diese Freizeit: 
-Das Essen wird angeliefert, man braucht also nicht mehr selber zu kochen.
+Das Abendessen wird angeliefert, man braucht es also nicht mehr selber zu kochen.
 
 Kontakt über:  <g.czech@online.de>
 
