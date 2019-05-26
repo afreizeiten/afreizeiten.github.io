@@ -36,7 +36,7 @@ Frühsommer in Westfriesland
 
 Freizeit von Mechtild und Hans Günter
 
-[Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf)
+[Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf) __geändert!!__
 
 -----------------------------------------------------------------------------
 
