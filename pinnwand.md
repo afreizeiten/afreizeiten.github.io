@@ -4,8 +4,6 @@ title: Pinnwand
 ---
 # Pinnwand
 
-## Freier Platz auf der Freizeit in Westfriesland!
-
 Bitte beachten: inzwischen gibt es eine Neuerung für diese Freizeit: 
 Das Abendessen wird angeliefert, man braucht es also nicht mehr selber zu kochen.
 
