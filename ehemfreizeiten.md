@@ -27,6 +27,8 @@ Sommerfreizeit in Binz/Rügen
 
 ![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
 
+[Sommerfreizeit Binz 2019](/pdf/Binz_2019.pdf)
+
 [Sommerfreizeit Binz 2018](/pdf/2018Binz.pdf)
 
 ----------------------------------------------------------------------------
