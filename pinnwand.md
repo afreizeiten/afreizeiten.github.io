@@ -5,23 +5,6 @@ title: Pinnwand
 # Pinnwand
 
 ## Gesuche Mitfahrgelegenheit
----------------------------------------------------------------------------
-
-Ich suche eine Mitfahrgelegenheit am 16.06.9 nach Binz von Marburg oder Nähe und am 22.06.19 wieder zurück.
-Susanne: <susanne.wegert@web.de> Tel: 01575 1137557
-
-Ich suche eine Mitfahrgelegenheit aus Süd- oder Südwestdeutschland nach
-Binz zum 10.06. und auch wieder zurück am 22.06. oder kann gerne auch woanders zusteigen!
-
-Wer hat Platz im Auto?
-
-### Oder ich biete eine Mitfahrgelegenheit in meinem Auto an!
-
-Wer will mitfahren oder zusteigen??
-
-Liebe Grüße von Monika  0171 / 2180941, 
-
-<mail-monika@web.de> 
 
 ---------------------------------------------------------------------
 
