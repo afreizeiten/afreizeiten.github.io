@@ -77,6 +77,16 @@ Freizeit von Erich
 
 ----------------------------------------------------------------------------
 
+26.12.2019 bis 05.01.2020
+
+Winter-Freizeit in Rothenburg ob der Tauber 
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[Silvesterfreizeit Rothenburg](pdf/2019 20 Silvesterfreizeit Rothenburg.pdf)
+
+----------------------------------------------------------------------------
+
 # Spirituelles Südindien
 
 Franz aus Salzburg bietet zwei Freizeiten in Südindien an.
