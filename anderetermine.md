@@ -11,7 +11,7 @@ Veranstaltungen mit, die in diese Kategorie passen.
 
 ### Back to Basics 
 
-Die Beginner-Meetings der Anonymen Alkoholiker
+Die Beginner-Meetings der Anonymen Alkoholiker.
 An einem Tag durch das 12-Schritte-Programm
 
 Im Stadtteilzentrum Lister Turm in Hannover
