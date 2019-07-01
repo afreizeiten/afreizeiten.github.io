@@ -16,7 +16,7 @@ An einem Tag durch das 12-Schritte-Programm
 
 Im Stadtteilzentrum Lister Turm in Hannover
 
-31. August 2019 und 28. September 2019
+ 31. August 2019 und 28. September 2019
 
 [Flyer B2B.pdf](/pdf/B2B.pdf)
 
