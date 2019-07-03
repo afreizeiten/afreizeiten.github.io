@@ -13,14 +13,16 @@ Mehr unter <https://www.a-freizeiten.de/freizeittermine>
 
 ![Freizeit Usedom](/images/Haus Kranich Usedom.png)
 
-Wir suchen für diese Freizeit zwei Teamer. Wer Lust und Zeit hat, bitte eine kurze Nachricht an den Vorstand senden. 
+Wir suchen für diese Freizeit zwei Teamer. Wer Lust und Zeit hat, bitte eine kurze Nachricht an den Vorstand senden.
+
+<vorstand@selbsthilfe-freizeitwerk.de>
+
 Wir wünschen euch einen wunderschönen Sommer 2019 
 
 Gerhard,
 Vorstand 
+
 -------------------------------------------------------------------------------------------------------------------------
-
-
 
 ## Gilt immer!
 
