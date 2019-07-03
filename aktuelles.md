@@ -7,6 +7,16 @@ title: Aktuelles
 
 Mehr unter <https://www.a-freizeiten.de/freizeittermine>
 
+## Von 18.06. bis 28.06.2020 habe wir vom Vorstand einen Vertrag für das "Haus Kranich" in Zinnowitz/Usedom unterschrieben. 
+
+Wir suchen für diese Freizeit zwei Teamer. Wer Lust und Zeit hat, bitte eine kurze Nachricht an den Vorstand senden. 
+Wir wünschen euch einen wunderschönen Sommer 2019 
+
+Gerhard Vorstand 
+
+
+
+
 ## Gilt immer!
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
