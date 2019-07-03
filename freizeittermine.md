@@ -127,6 +127,20 @@ Freizeit von Gerti
 
 --------------------------------------------------------------------------------
 
+06.03.2020 – 27.03.2020
+
+A-Freizeit in der Türkei 
+
+Ab in die Wärme! Nach Side am Mittelmeer! 
+
+Hotel Febeach Side – Landeskategorie: 4Sterne – ALL INCLUSIVE
+
+Freizeit von Gerhard
+
+[Anmeldung Türkei 2020.pdf](/pdf/Türkei 2020.pdf)
+
+------------------------------------------------------------------
+
 09.04.2020 – 18.04.2020
 
 Ostern in der Schaippachmühle
