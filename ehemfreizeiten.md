@@ -99,9 +99,11 @@ Herbst-Freizeiten in Bremen
 
 [Herbst-Freizeit Bremen 2016.pdf](pdf/2016 Herbst in der Bremer Schweiz.pdf)
 
-Freizeit in Westfriesland
+Freizeiten in Westfriesland
 
 ![Friesland](images/Leiste_Friesland.jpg)
+
+[Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf)
 
 [Westfriesland 2017.pdf](pdf/2017 Westfriesland_Holland.pdf)
 
