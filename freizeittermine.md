@@ -6,18 +6,6 @@ title: Termine
 
 -----------------------------------------------------------------------------
 
-24.06. bis 05.07.2019
-
-Frühsommer in Westfriesland
-
-![Leiste_Friesland](/images/Leiste_Friesland.jpg)
-
-Freizeit von Mechtild und Hans Günter
-
-[Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf) __geändert!!__
-
------------------------------------------------------------------------------
-
 29.07. - 10.08.2019
 
 Sommerfreizeit in Allmannsried
