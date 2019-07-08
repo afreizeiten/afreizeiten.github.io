@@ -50,6 +50,7 @@ Jeder kann kommen, ohne Anmeldung…
 Freizeit von Mechtild
 
 [Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen.pdf)
+
 -----------------------------------------------------------------------------------
 ## Treffen von 12-Schritte Gruppen
 
