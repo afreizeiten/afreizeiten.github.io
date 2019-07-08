@@ -67,7 +67,9 @@ Freizeit von Erich
 
 26.12.2019 bis 05.01.2020
 
-Winter-Freizeit in Rothenburg ob der Tauber 
+Winter-Freizeit in Rothenburg ob der Tauber
+
+![Rothenburg](/images/rothenburg.png)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
