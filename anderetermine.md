@@ -38,8 +38,7 @@ Wann: 15:00 Uhr
 Wo: Köln, Osho-Place, Venloer St. 2
 
 -----------------------------------------------------------------------------------
-
-26. bis 28. Juli 2019
+' 26. bis 28. Juli 2019
 
 Minifreizeit in Bremen-Blumenthal
 
@@ -48,7 +47,7 @@ Minifreizeit in Bremen-Blumenthal
 Wochenende für Ehemalige aus 12-Schritte Kliniken und interessierte A-FreundInnen.
 Jeder kann kommen, ohne Anmeldung…
 
-Freizeit von Mechtild
+Freizeit von Mechtild und Susanne
 
 [Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen.pdf)
 
