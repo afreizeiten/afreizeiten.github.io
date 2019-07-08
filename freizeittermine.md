@@ -69,7 +69,7 @@ Freizeit von Erich
 
 Winter-Freizeit in Rothenburg ob der Tauber
 
-![Rothenburg](/images/rothenburg.png)
+![Rothenburg op der Tauber](/images/rothenburg.png)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
