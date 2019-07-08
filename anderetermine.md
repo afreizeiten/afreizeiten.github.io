@@ -38,6 +38,7 @@ Wann: 15:00 Uhr
 Wo: Köln, Osho-Place, Venloer St. 2
 
 -----------------------------------------------------------------------------------
+
 26. bis 28. Juli 2019
 
 Minifreizeit in Bremen-Blumenthal
