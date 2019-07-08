@@ -37,19 +37,20 @@ im Osho-Place in Köln! Alle Freizeitler und Freunde sind herzlich eingeladen.
 Wann: 15:00 Uhr
 Wo: Köln, Osho-Place, Venloer St. 2
 
+-----------------------------------------------------------------------------------
 26. bis 28. Juli 2019
 
 Minifreizeit in Bremen-Blumenthal
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
 
-Wochenende für Ehemalige aus 12-Schritte Kliniken und interessierte A-FreundInnen
+Wochenende für Ehemalige aus 12-Schritte Kliniken und interessierte A-FreundInnen.
 Jeder kann kommen, ohne Anmeldung…
 
 Freizeit von Mechtild
 
 [Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen.pdf)
-
+-----------------------------------------------------------------------------------
 ## Treffen von 12-Schritte Gruppen
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
