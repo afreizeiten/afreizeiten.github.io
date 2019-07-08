@@ -9,17 +9,6 @@ Hier findet Ihr Veranstaltungen, die keine A-Freizeiten sind, aber von denen
 wir glauben, dass sie Euch interessieren könnten. Bitte teilt uns Termine und
 Veranstaltungen mit, die in diese Kategorie passen.
 
-### Back to Basics 
-
-Die Beginner-Meetings der Anonymen Alkoholiker.
-An einem Tag durch das 12-Schritte-Programm
-
-Im Stadtteilzentrum Lister Turm in Hannover
-
-' 31. August 2019 und 28. September 2019
-
-[Flyer B2B.pdf](/pdf/B2B.pdf)
-
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
 Jeden 1. und 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
