@@ -12,8 +12,11 @@ Winterfreizeiten
 
 Winter-Freizeit in Rothenburg ob der Tauber 
 
+![Blankenheim](/images/blankenheim.jpeg)
+
 [Rothenburg 2018](pdf/2018Rothenburg.pdf)
 
+Winterfreizeit in Blankenheim
 
 ![Blankenheim](/images/blankenheim.jpeg)
 
