@@ -12,11 +12,11 @@ Winterfreizeiten
 
 Winter-Freizeit in Rothenburg ob der Tauber 
 
-![Blankenheim](/images/blankenheim.jpeg)
+![Rothenburg op der Tauber](/images/rothenburg.png)
 
 [Rothenburg 2018](pdf/2018Rothenburg.pdf)
 
-Winterfreizeit in Blankenheim
+Winterfreizeiten in Blankenheim
 
 ![Blankenheim](/images/blankenheim.jpeg)
 
@@ -26,7 +26,7 @@ Winterfreizeit in Blankenheim
 
 ----------------------------------------------------------------------------
 
-Sommerfreizeit in Binz/Rügen
+Sommerfreizeiten in Binz/Rügen
 
 ![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
 
