@@ -16,6 +16,12 @@ das K-Meeting in Bonn-Beuel, Neu-Vilich statt.
 
 Kontakt / Auskunft über Raimund, Tel.: 02241-319386
 
+### Kuschelmeeting Remscheid
+
+Jeden 2. Und 4. Freitag um 19.30 Uhr!
+Für Anmeldung und weitere Infos bitte Mo-Fr 16h bis 18h unter folgender Nummer anrufen,
+Oliver 01604371917
+
 ### Kuschelmeeting
 für Frauen, jeden ersten Donnerstag im Monat
 im Schloss Glarisegg am Bodensee, Nähe Konstanz, 19:30-21:00
