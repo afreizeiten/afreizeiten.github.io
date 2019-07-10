@@ -8,9 +8,7 @@ title: Ehemalige Freizeiten
 
 ## Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
-Winterfreizeiten
-
-Winter-Freizeit in Rothenburg ob der Tauber 
+Winterfreizeit in Rothenburg ob der Tauber 
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
