@@ -16,7 +16,7 @@ Meine E-Mailadresse: <mb62@gmx.de>
 
 -----------------------------------------------------------------------
 
-# Mitfahrgelegenheit gesucht für die Rückfahrt von Allmannsried nach Köln am 10.08.19, Ingrid 015140324569
+Mitfahrgelegenheit gesucht für die Rückfahrt von Allmannsried nach Köln am 10.08.19, Ingrid 015140324569
 
 --------------------------------------------------------------------------
 
