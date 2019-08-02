@@ -77,34 +77,6 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 ----------------------------------------------------------------------------
 
-# Spirituelles Südindien
-
-Franz aus Salzburg bietet zwei Freizeiten in Südindien an.
-
-Mit 12 Schritte Meetings und vielen wirklich tollen Sachen: 
-
-Auroville, Ashrams, Meer etc.
-
-'1. Freizeit vom
-
-02.11.2019 – 17.11.2019
-
-'2. Freizeit vom
-
-25.01.2020 – 09.02.2020
-
-[Flyer Südindien Teil 1.pdf](/pdf/Indien 2019 2020.pdf)
-
-[Flyer Südindien Teil 2.pdf](/pdf/Flyer Indien Teil 2.pdf)
-
-[Flyer Südindien Teil 3.pdf](/pdf/Flyer Indien Teil 3.pdf)
-
-Nähere Informationen erhaltet ihr unter 
-
-<indienfranz@gmail.com>
-
---------------------------------------------------------------------------------
-
 23.02. - 01.03.2020
 
 Skifreizeit in Ruhpolding
@@ -140,5 +112,27 @@ Ostern in der Schaippachmühle
 Freizeit von Erich
 
 [Ostern 2020 in Schaippach.pdf](/pdf/Osterfreizeit.pdf)
+
+--------------------------------------------------------------------------------
+
+# Spirituelles Südindien
+
+Franz aus Salzburg bietet eine Freizeiten in Südindien an.
+
+Mit 12 Schritte Meetings und vielen wirklich tollen Sachen: 
+
+Auroville, Ashrams, Meer etc.
+
+19.10.2020 – 03.11.2020
+
+[Flyer Südindien Teil 1.pdf](/pdf/Indien 2019 2020.pdf)
+
+[Flyer Südindien Teil 2.pdf](/pdf/Flyer Indien Teil 2.pdf)
+
+[Flyer Südindien Teil 3.pdf](/pdf/Flyer Indien Teil 3.pdf)
+
+Nähere Informationen erhaltet ihr unter 
+
+<indienfranz@gmail.com>
 
 --------------------------------------------------------------------------------
