@@ -6,18 +6,6 @@ title: Termine
 
 -----------------------------------------------------------------------------
 
-29.07. - 10.08.2019
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit von Wolfgang
-
-[1. A-Freizeit 2019.pdf](/pdf/1. a-freizeit 2019 Ausschreibung.pdf)
-
------------------------------------------------------------------------------
-
 06.08. - 16.08.2019
 
 '29. Bernrieder 12-Schritte-Seminar 
