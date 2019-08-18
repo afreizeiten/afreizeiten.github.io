@@ -139,3 +139,11 @@ Sommerfreizeiten in Allmannsried
 ## Freizeit von Gerhard
 
 [Anmeldung Türkei 2019.pdf](/pdf/Türkei Urlaub 2019 März.pdf)
+
+----------------------------------------------------------------------------
+
+## Freizeit von Elisabeth, Verena und Mati
+
+[29. Bernrieder Schritte-Seminar 2019.pdf](/pdf/Bernried 2019.pdf)
+
+----------------------------------------------------------------------------
