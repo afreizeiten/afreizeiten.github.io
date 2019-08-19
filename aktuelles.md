@@ -3,7 +3,7 @@ layout: default
 title: Aktuelles
 ---
 
-# Marlene bietet über die Weihnachtstage eine Freizeit in Oberbayern an.
+## Marlene bietet über die Weihnachtstage eine Freizeit in Oberbayern an.
 
 Mehr dazu unter  <https://www.a-freizeiten.de/freizeittermine>
 
