@@ -2,6 +2,11 @@
 layout: default
 title: Aktuelles
 ---
+
+# Marlene bietet über die Weihnachtstage eine Freizeit in Oberbayern an.
+
+Mehr dazu unter  <https://www.a-freizeiten.de/freizeittermine>
+
 -------------------------------------------------------------------------------------------------------------------------
 
 ## Vom 18.06. bis 28.06.2020 haben wir vom Vorstand einen Vertrag für das "Haus Kranich" in Zinnowitz/Usedom unterschrieben. 
