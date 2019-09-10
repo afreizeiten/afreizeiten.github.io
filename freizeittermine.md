@@ -6,18 +6,6 @@ title: Termine
 
 -----------------------------------------------------------------------------
 
-27.08. - 05.09.2019
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit von Wolfgang
-
-[2. A-Freizeit 2019.pdf](/pdf/2. A-Freizeit 2019 Ausschreibung.pdf)
-
------------------------------------------------------------------------------
-
 10.10. - 19.10. 2019
 
 DIESMAL  9  TAGE!
