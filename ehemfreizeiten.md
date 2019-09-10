@@ -116,6 +116,8 @@ Freizeiten in Westfriesland
 
 Sommerfreizeiten in Allmannsried
 
+[2019 Sommerfreizeit Allmannsried 2.pdf](/pdf/2. A-Freizeit 2019 Ausschreibung.pdf)
+
 [2019 Sommerfreizeit Allmannsried 1.pdf](/pdf/1. a-freizeit 2019 Ausschreibung.pdf)
 
 [2018 Sommerfreizeit Allmannsried 1.pdf](/pdf/1. A-Freizeit 2018.pdf)
