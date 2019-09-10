@@ -15,7 +15,7 @@ Herbstfreizeit in Bremen-Blumenthal
 
 Freizeit von Mechtild und Hans Günter
 
-[Herbst-Freizeit Bremen.pdf](/pdf/Herbst-Freizeit Bremen.pdf)
+[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2019.pdf)
 
 -----------------------------------------------------------------------------
 
