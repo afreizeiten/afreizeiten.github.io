@@ -46,14 +46,6 @@ Infos unter 01782090444 (Monika)
 > Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
 > Freue mich sehr über Nachricht. <umhanni@icloud.com>
 
-### Freizeitwerk Stammtisch!
-
-Freunde vom Verein Selbsthilfe Freizeitwerk e.V. treffen sich zum gemütlichen
-Klönen und Gedankenaustausch am 2. Sonntag im Monat
-im Osho-Place in Köln! Alle Freizeitler und Freunde sind herzlich eingeladen.
-Wann: 15:00 Uhr
-Wo: Köln, Osho-Place, Venloer St. 2
-
 -----------------------------------------------------------------------------------
 
 ## Treffen von 12-Schritte Gruppen
