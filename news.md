@@ -8,6 +8,8 @@ title: Newsletter
 Der Newsletter informiert über A-Freizeiten und verfügbare Plätze in den A-Freizeiten, sowie sowie Neuigkeiten zu den
 einzelnen Freizeitangeboten.
 
+## Bitte beachten: Der Newsletterversand ist noch nicht aktiv!!
+
 <form action="https://kundenserver.de/cgi-bin/mailinglist.cgi" method="POST" target="_blank">
   <input checked name="subscribe_r" type="radio" value="subscribe">
   Ja, ich möchte mich auf den Newsletter news@a-freizeiten.de eintragen.
