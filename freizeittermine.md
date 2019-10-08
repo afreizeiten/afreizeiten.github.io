@@ -99,7 +99,7 @@ Ostern in der Bremer Schweiz
 
 Freizeit von Mechtild und Hans Günter  
 
-[Ostern-Freizeit Bremen.pdf](/pdf/Ostern-Freizeit Bremen 2020.pdf)
+[Oster-Freizeit Bremen.pdf](/pdf/Oster-Freizeit Bremen 2020.pdf)
 
 -------------------------------------------------------------------------------
 
