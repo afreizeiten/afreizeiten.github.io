@@ -91,6 +91,18 @@ Freizeit von Erich
 
 --------------------------------------------------------------------------------
 
+09.04.2020 – 18.04.2020
+
+Ostern in der Bremer Schweiz
+
+![bremen](/images/bremen.jpeg)
+
+Freizeit von Mechtild und Hans Günter  
+
+[Ostern-Freizeit Bremen.pdf](/pdf/Ostern-Freizeit Bremen 2020.pdf)
+
+-------------------------------------------------------------------------------
+
 # Spirituelles Südindien
 
 Franz aus Salzburg bietet eine Freizeiten in Südindien an.
