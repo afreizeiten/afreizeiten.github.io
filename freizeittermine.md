@@ -4,20 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
------------------------------------------------------------------------------
-
-10.10. - 19.10. 2019
-
-DIESMAL  9  TAGE!
-Herbstfreizeit in Bremen-Blumenthal
-
-![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
-
-Freizeit von Mechtild und Hans Günter
-
-[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2019.pdf)
-
------------------------------------------------------------------------------
 
 20.12.2019 - 27.12.2019
 
