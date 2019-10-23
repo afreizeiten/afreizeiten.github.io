@@ -55,13 +55,13 @@ vom 08. - 10. November 2019
 
 -------------------------------------------------------------------------------------------
 
-21. bis 24. Februar 2020
+'21. bis 24. Februar 2020
 
 EA-Treffen zu Karneval in Neustadt an der Weinstraße
 
 "Meine Mitte finden, Gefühle zeigen"
 
-Infos: <www.e-und-a.jimdo.com/events/neustadt>
+Infos: <http://www.e-und-a.jimdo.com/events/neustadt>
 
 ------------------------------------------------------------------------------
 
