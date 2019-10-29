@@ -3,9 +3,9 @@ layout: default
 title: Aktuelles
 ---
 
-## Marlene bietet über die Weihnachtstage eine Freizeit in Oberbayern an.
+## Noch Plätze frei in Minden vom 8.11.-10.11.2019!!
 
-Mehr dazu unter  <https://www.a-freizeiten.de/freizeittermine>
+Mini-Freizeiten von Peter in MINDEN
 
 -------------------------------------------------------------------------------------------------------------------------
 
