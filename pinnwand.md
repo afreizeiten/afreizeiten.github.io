@@ -4,7 +4,7 @@ title: Pinnwand
 ---
 # Pinnwand
 
-Welcher Mann (Nicht-Schnarcher) mag sich mit mir ein DZ auf der Sylvesterfreizeit
+Welcher Mann (Nicht-Schnarcher) mag sich mit mir ein DZ auf der Silvesterfreizeit
 in Rothenburg teilen?
 
 Stefan aus Oldenburg 
