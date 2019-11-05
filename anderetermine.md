@@ -59,7 +59,7 @@ vom 08. - 10. November 2019
 
 EA-Treffen zu Karneval in Neustadt an der Weinstraße
 
-"Meine Mitte finden, Gefühle zeigen"
+### "Meine Mitte finden, Gefühle zeigen"
 
 Infos: <http://www.e-und-a.jimdo.com/events/neustadt>
 
