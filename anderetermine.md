@@ -45,13 +45,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-### Peter lädt ein zu Mini-Freizeiten in MINDEN 
-
-(Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
-
-vom 08. - 10. November 2019
-
-[Einladung Mini-Freizeit Herbst 2019 Minden.pdf](/pdf/Mini-Freizeit Herbst 2019 Minden.pdf)
+z.Zt. keine
 
 -------------------------------------------------------------------------------------------
 
