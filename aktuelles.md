@@ -3,16 +3,6 @@ layout: default
 title: Aktuelles
 ---
 
-## Noch Plätze frei in Minden vom 8.11.-10.11.2019!!
-
-Mini-Freizeiten von Peter in MINDEN
-
-Siehe hier:
-
-<https://www.a-freizeiten.de/anderetermine.html>
-
--------------------------------------------------------------------------------------------------------------------------
-
 ## Vom 18.06. bis 28.06.2020 haben wir vom Vorstand einen Vertrag für das "Haus Kranich" in Zinnowitz/Usedom unterschrieben. 
 
 ![Freizeit Usedom](/images/Haus Kranich Usedom.png)
