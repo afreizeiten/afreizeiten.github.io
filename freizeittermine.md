@@ -93,7 +93,7 @@ Freizeit von Mechtild und Hans Günter
 
 Sommerfreizeit auf der Insel Usedom (Ostsee)
 
-![Haus Kranich.jpg](/images/Haus Kranich.jpg)
+![Freizeit Usedom](/images/Haus Kranich Usedom.png)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
