@@ -93,6 +93,8 @@ Freizeit von Mechtild und Hans Günter
 
 12-Schritte-Wanderung in Bad Herrenalb
 
+![Bad Herrenalb](/images/Leiste Bad Herrenalb2.png) 	
+
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
