@@ -89,6 +89,18 @@ Freizeit von Mechtild und Hans Günter
 
 -------------------------------------------------------------------------------
 
+18.06. - 28.06.2020
+
+Sommerfreizeit auf der Insel Usedom (Ostsee)
+
+![Haus Kranich.jpg](/images/Haus Kranich.jpg)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[Sommerfreizeit Usedom.pdf](/pdf/Usedom 2020.pdf)
+
+-------------------------------------------------------------------------------
+
 # Spirituelles Südindien
 
 Franz aus Salzburg bietet eine Freizeiten in Südindien an.
