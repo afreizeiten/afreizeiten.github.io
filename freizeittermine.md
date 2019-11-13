@@ -97,7 +97,7 @@ Freizeit von Mechtild und Hans Günter
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
+[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung 2020.pdf)
 
 -------------------------------------------------------------------------------
 
