@@ -89,6 +89,16 @@ Freizeit von Mechtild und Hans Günter
 
 -------------------------------------------------------------------------------
 
+20.05. - 24.05.2020
+
+12-Schritte-Wanderung in Bad Herrenalb
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
+
+-------------------------------------------------------------------------------
+
 18.06. - 28.06.2020
 
 Sommerfreizeit auf der Insel Usedom (Ostsee)
