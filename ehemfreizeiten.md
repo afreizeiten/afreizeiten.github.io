@@ -43,16 +43,16 @@ Sommerfreizeiten in Grömitz/Ostsee
 [2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
 
 ----------------------------------------------------------------------------
-12-Schritte-Wanderung 2017 in Bad Herrenalb
-
-[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung.pdf)
-
-----------------------------------------------------------------------------
 12-Schritte-Wanderung 2018 in Arnsberg/Sauerland
 
 [12-Schritte-Wanderung 2018.pdf](/pdf/12-Schritte-Wanderung 2018.pdf)
 
-----------------------------------------------------------------------------
+
+12-Schritte-Wanderung 2017 in Bad Herrenalb
+
+[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung 2017.pdf)
+
+---------------------------------------------------------------------------
 
 ## Freizeiten von Erich
 
