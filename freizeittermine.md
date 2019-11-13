@@ -97,7 +97,7 @@ Sommerfreizeit auf der Insel Usedom (Ostsee)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Sommerfreizeit Usedom.pdf](/pdf/Usedom 2020.pdf)
+[Sommerfreizeit Usedom.pdf](/pdf/Sommerfreizeit Usedom.pdf)
 
 -------------------------------------------------------------------------------
 
