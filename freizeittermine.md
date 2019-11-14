@@ -23,7 +23,7 @@ Weihnachten in der Schaippachmühle
 
 Freizeit von Erich
 
-[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit.pdf)
+[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit 2019.pdf)
 
 ----------------------------------------------------------------------------
 
@@ -73,7 +73,7 @@ Ostern in der Schaippachmühle
 
 Freizeit von Erich
 
-[Ostern 2020 in Schaippach.pdf](/pdf/Osterfreizeit.pdf)
+[Ostern 2020 in Schaippach.pdf](/pdf/Osterfreizeit 2020.pdf)
 
 --------------------------------------------------------------------------------
 
