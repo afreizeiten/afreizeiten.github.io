@@ -4,17 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
-
-20.12.2019 - 27.12.2019
-
-Schwabsoier Weihnachtsfreizeit in Oberbayern
-
-Freizeit von Marlene
-
-[Schwabsoier Weihnachtsfreizeit.pdf](pdf/Schwabsoier Weihnachtsfreizeit 2019.pdf)
-
-------------------------------------------------------------------------------
-
 27.12.2019 - 04.01.2020
 
 Weihnachten in der Schaippachmühle
