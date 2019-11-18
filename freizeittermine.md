@@ -122,7 +122,7 @@ Sommerfreizeit in Allmannsried
 
 Freizeit von Wolfgang
 
-[2. A-Freizeit 2020.pdf](/pdf/2. a-freizeit 2020Ausschreibung.pdf)
+[2. A-Freizeit 2020.pdf](/pdf/2. a-freizeit 2020 Ausschreibung.pdf)
 
 -----------------------------------------------------------------------------
 
