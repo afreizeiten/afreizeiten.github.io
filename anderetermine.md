@@ -59,9 +59,11 @@ Infos: <http://www.e-und-a.jimdo.com/events/neustadt>
 
 (Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
 
-vom 28.02. - 01.03.2020
+vom 28.02. - 01.03.2020 und
 
-[Einladung Mini-Freizeit 2020 Minden.pdf](/pdf/Einladung Mini-Freizeit 2020 Minden.pdf)
+vom 06.11. - 08.11.2020
+
+[Mini-Freizeiten Frühjahr und Herbst 2020 Minden.pdf](/pdf/Einladung Mini-Freizeit 2020 Minden.pdf)
 
 ------------------------------------------------------------------------------
 
