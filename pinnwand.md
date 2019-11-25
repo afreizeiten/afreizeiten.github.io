@@ -11,7 +11,7 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
-# Maria sucht eine MFG für 12-Schritte-Wanderung im Mai von München aus, kann auch irgendwo später zusteigen, zb Karlsruhe….
+### Maria sucht eine MFG für 12-Schritte-Wanderung im Mai von München aus, kann auch irgendwo später zusteigen, zb Karlsruhe….
 
 <maria.eberl@gmx.net>
 
