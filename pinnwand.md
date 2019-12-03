@@ -11,7 +11,7 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
-### Bettina sucht eine Mitfahrgelegenheit aus der Ecke Köln/Troisdorf/Bonn am 26.12.19.Gerne mit Ankunft in Rothenburg vor 15.00 Uhr. Ebenfalls eine Rückfahrt am 05.01.20. Ich freue mich über eine Nachricht unter: <recoveringingermany@gmx.de> Vielen Dank!
+### Bettina sucht eine Mitfahrgelegenheit aus der Ecke Köln/Troisdorf/Bonn am 26.12.19.Gerne mit Ankunft in Rothenburg vor 15.00 Uhr. Ebenfalls eine Rückfahrt am 05.01.20. Ich freue mich über eine Nachricht unter: <recoveryingermany@gmx.de> Vielen Dank!
 
 
 ### Maria sucht eine MFG für 12-Schritte-Wanderung im Mai von München aus, kann auch irgendwo später zusteigen, zb Karlsruhe….
