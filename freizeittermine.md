@@ -130,9 +130,9 @@ Freizeit von Wolfgang
 
 Herbstfreizeit im Solling
 
-[Herbst im Solling.pdf](/pdf/Herbstfreizeit Solling 2020.pdf)
-
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+[Herbst im Solling.pdf](/pdf/Herbstfreizeit Solling 2020.pdf)
 
 -----------------------------------------------------------------------------
 
