@@ -126,6 +126,16 @@ Freizeit von Wolfgang
 
 -----------------------------------------------------------------------------
 
+16.10.2020 - 23.10.2020
+
+Herbstfreizeit im Solling
+
+[Herbst im Solling.pdf](/pdf/Herbstfreizeit Solling 2020.pdf)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+-----------------------------------------------------------------------------
+
 # Spirituelles Südindien
 
 Franz aus Salzburg bietet eine Freizeiten in Südindien an.
