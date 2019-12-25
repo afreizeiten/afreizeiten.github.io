@@ -11,6 +11,10 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
+### Petra aus Meckenheim bietet für die Bonner Ecke Mitfahrgelegenheit nach
+Schaippach. Ich würde gegen 12 Uhr fahren, lieber gemütlich mit Pausen
+in Ruhe ankommen: <petra.steinbach@t-online.de>
+
 ### Bettina sucht eine Mitfahrgelegenheit aus der Ecke Köln/Troisdorf/Bonn am 26.12.19. Gerne mit Ankunft in Rothenburg vor 15.00 Uhr. Ebenfalls eine Rückfahrt am 05.01.20. Ich freue mich über eine Nachricht unter: <recoveryingermany@gmx.de> Vielen Dank!
 
 
