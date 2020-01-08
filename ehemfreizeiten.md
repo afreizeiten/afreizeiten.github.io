@@ -60,6 +60,8 @@ Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
+[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit 2019.pdf)
+
 [Weihnachten 2018 in Schaippach.pdf](/pdf/Weihnachten 2018 in Schaippach.pdf)
 
 [Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
