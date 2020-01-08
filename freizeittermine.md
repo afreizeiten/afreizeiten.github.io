@@ -4,28 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
-27.12.2019 - 04.01.2020
-
-Weihnachten in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit 2019.pdf)
-
-----------------------------------------------------------------------------
-
-26.12.2019 bis 05.01.2020
-
-Winter-Freizeit in Rothenburg ob der Tauber
-
-![Rothenburg op der Tauber](/images/rothenburg.png)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[Silvesterfreizeit Rothenburg](pdf/Silvesterfreizeit Rothenburg 2019 3.pdf)
-
 ----------------------------------------------------------------------------
 
 23.02. - 01.03.2020
