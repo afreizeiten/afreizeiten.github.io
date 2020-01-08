@@ -11,12 +11,7 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
-### Petra aus Meckenheim bietet für die Bonner Ecke Mitfahrgelegenheit 
-am 27.12.2019 nach Schaippach. Ich würde gegen 12 Uhr fahren, lieber gemütlich mit Pausen
-in Ruhe ankommen. Nachricht an: <petra.steinbach@t-online.de>
-
-### Bettina sucht eine Mitfahrgelegenheit aus der Ecke Köln/Troisdorf/Bonn
-am 26.12.19. Gerne mit Ankunft in Rothenburg vor 15.00 Uhr. Ebenfalls eine Rückfahrt am 05.01.20. Ich freue mich über eine Nachricht unter: <recoveryingermany@gmx.de> Vielen Dank!
+### Anne, die Teamerin der 12-Schritte-Wanderung, ist vom 06.03.2020 - 27.03.2020 in der Türkeifreizeit und nur per E-Mail erreichbar. <anneschulzhp@web.de>
 
 
 ### Maria sucht eine MFG für 12-Schritte-Wanderung im Mai von München aus, kann auch irgendwo später zusteigen, zb Karlsruhe….
