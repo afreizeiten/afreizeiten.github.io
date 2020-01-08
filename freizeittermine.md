@@ -86,6 +86,8 @@ Freizeit von Mechtild und Hans Günter
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
+# Anne, die Teamerin der 12-Schritte-Wanderung, ist vom 06.03.2020 - 27.03.2020 in der Türkeifreizeit und nur per E-Mail erreichbar. anneschulzhp@web.de
+
 [12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung 2020.pdf)
 
 -------------------------------------------------------------------------------
