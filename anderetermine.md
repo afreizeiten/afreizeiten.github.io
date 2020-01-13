@@ -33,7 +33,7 @@ Infos unter 01782090444 (Monika)
 ### KUSCHELKOMITEE
 Für alle A-Freundinnen und A-Freunde und interessierte Menschen aus Selbsthilfegruppen
 
-16. Februar 14.30 Uhr in Bremen-Blumenthal
+'16. Februar 14.30 Uhr in Bremen-Blumenthal
 
 es kann anschließend dort übernachtet werden. 
 
