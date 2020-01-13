@@ -67,6 +67,21 @@ vom 06.11. - 08.11.2020
 
 ------------------------------------------------------------------------------
 
+MINIFREIZEIT IN BLUMENTHAL
+
+im August 2020
+
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+Wochenende für Ehemalige aus 12-Schritte-Kliniken
+und A-Freundinnen und A-Freunde
+
+Claudia und Mechtild laden ein
+
+[Mini-Freizeit Bremen.pdf](pdf/Mini-Freizeit in Blumenthal August 2020.pdf)
+
+--------------------------------------------------------------------------------
+
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
