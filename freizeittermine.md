@@ -106,6 +106,18 @@ Freizeit von Wolfgang
 
 -----------------------------------------------------------------------------
 
+27.09. - 06.10.2020 (9 Tage!)
+
+Herbstfreizeit in der Bremer Schweiz
+
+![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Hans Günter
+
+[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2020.pdf)
+
+-------------------------------------------------------------------------------
+
 16.10.2020 - 23.10.2020
 
 Herbstfreizeit im Solling
