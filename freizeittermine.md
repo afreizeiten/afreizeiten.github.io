@@ -122,8 +122,6 @@ Freizeit von Mechtild und Hans Günter
 
 Herbstfreizeit im Solling
 
-![Freizeit Solling](/images/Solling 2.jpg)
-
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 [Herbst im Solling.pdf](/pdf/Herbstfreizeit Solling ohne Zusatz.pdf)
