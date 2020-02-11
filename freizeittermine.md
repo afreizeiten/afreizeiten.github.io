@@ -126,7 +126,7 @@ Herbstfreizeit im Solling
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
-[Herbst im Solling.pdf](/pdf/Herbstfreizeit Solling ohne Zusatz.pdf)
+[Herbst im Solling.pdf](/pdf/Herbstfreizeit Solling neu.pdf)
 
 -----------------------------------------------------------------------------
 
