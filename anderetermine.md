@@ -67,6 +67,18 @@ vom 06.11. - 08.11.2020
 
 ------------------------------------------------------------------------------
 
+### Tanz in den Mai!
+
+30. April bis 3. Mai 2020
+
+“Erfahrungen teilen, Gefühlen folgen”
+
+Ein EA-Wochenende in Donauwörth
+ 
+Infos: <https://e-und-a.jimdofree.com/events>
+
+------------------------------------------------------------------------------
+
 MINIFREIZEIT IN BLUMENTHAL
 
 im August 2020
