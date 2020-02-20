@@ -30,16 +30,6 @@ Spendenbasis
 
 Infos unter 01782090444 (Monika)
 
-### KUSCHELKOMITEE
-Für alle A-Freundinnen und A-Freunde und interessierte Menschen aus Selbsthilfegruppen
-
-'16. Februar 14.30 Uhr in Bremen-Blumenthal
-
-es kann anschließend dort übernachtet werden. 
-
-[Einladung KomiteeSonntag.pdf](/pdf/Einladung KomiteeSonntag.pdf)
-
-
 ### Kuschelmeeting Karlsruhe (offen für alle A-Gruppen-Angehörigen)
 
 > Kuschelmeeting 1 - 2 x pro Monat in Karlsruhe für alle A-Gruppen-Angehörigen und Ehemalige der 12-Schritte-Kliniken. 
