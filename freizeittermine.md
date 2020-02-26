@@ -48,7 +48,7 @@ Freizeit von Erich
 
 Ostern in der Bremer Schweiz
 
-Freizeit von Mechtild und Hans Günter, fällt leider wegen zu geringem Interesse aus.
+Die Freizeit von Mechtild und Hans Günter, fällt leider wegen zu geringem Interesse aus.
 Tut uns sehr leid - aber war nicht anders zu machen.
 
 Meldet euch gerne schon für den Herbst an :-)
