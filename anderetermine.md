@@ -45,15 +45,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-'21. bis 24. Februar 2020
-
-EA-Treffen zu Karneval in Neustadt an der Weinstraße
-
-### "Meine Mitte finden, Gefühle zeigen"
-
-Infos: <http://www.e-und-a.jimdo.com/events/neustadt>
-
-----------------------------------------------------------------------------------------
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN 
 
