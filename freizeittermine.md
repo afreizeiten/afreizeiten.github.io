@@ -48,11 +48,10 @@ Freizeit von Erich
 
 Ostern in der Bremer Schweiz
 
-![bremen](/images/bremen.jpeg)
+Freizeit von Mechtild und Hans Günter, fällt leider wegen zu geringem Interesse aus.
+Tut uns sehr leid - aber war nicht anders zu machen.
 
-Freizeit von Mechtild und Hans Günter  
-
-[Oster-Freizeit Bremen.pdf](/pdf/Oster-Freizeit Bremen 2020.pdf)
+Meldet euch gerne schon für den Herbst an :-)
 
 -------------------------------------------------------------------------------
 
