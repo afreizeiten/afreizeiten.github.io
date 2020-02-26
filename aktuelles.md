@@ -3,7 +3,7 @@ layout: default
 title: Aktuelles
 ---
 
-## Die Osterfreizeit von Mechtild und Hans Günter in Bremen, fällt leider wegen zu geringem Interesse aus.
+## Die Osterfreizeit von Mechtild und Hans Günter in Bremen fällt leider wegen zu geringem Interesse aus.
 
 Tut uns sehr leid - aber war nicht anders zu machen.
 
