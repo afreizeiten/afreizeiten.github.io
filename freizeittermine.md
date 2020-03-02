@@ -6,18 +6,6 @@ title: Termine
 
 ----------------------------------------------------------------------------
 
-23.02. - 01.03.2020
-
-Skifreizeit in Ruhpolding
-
-![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
-
-Freizeit von Gerti
-
-[Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
-
---------------------------------------------------------------------------------
-
 06.03.2020 – 27.03.2020
 
 A-Freizeit in der Türkei 
