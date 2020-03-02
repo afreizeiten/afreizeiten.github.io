@@ -69,6 +69,16 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 -------------------------------------------------------------------------------
 
+14.07. - 24.07.2020
+
+'30. Bernrieder 12-Schritte-Seminar 
+
+Freizeit von Elisabeth, Herbert und Mati
+
+[30. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried20-20.02.10-Flyer20.07.14-24.pdf)
+
+--------------------------------------------------------------------------
+
 28.07. - 09.08.2020
 
 Sommerfreizeit in Allmannsried
