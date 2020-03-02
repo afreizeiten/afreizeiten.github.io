@@ -136,11 +136,16 @@ Sommerfreizeiten in Allmannsried
 
 ----------------------------------------------------------------------------
 
-## Freizeit von Gerti
+## Freizeiten von Gerti
 
 ![Sylt](/images/leiste-sylt-2.png)
 
 [Sylt Freizeit 2017.pdf](/pdf/Sylt_Freizeit_2017_Adresse_anonym.pdf)
+
+
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
+
+[Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
 
 ----------------------------------------------------------------------------
 
