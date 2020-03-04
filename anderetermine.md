@@ -56,6 +56,8 @@ vom 06.11. - 08.11.2020
 
 [Mini-Freizeiten Frühjahr und Herbst 2020 Minden.pdf](/pdf/Einladung Mini-Freizeit 2020 Minden.pdf)
 
+## Es gibt eine Info von Peter zu künftigen Mini-Freizeiten in Minden unter dem Menüpunkt "Aktuelles"
+
 ------------------------------------------------------------------------------
 
 ### Tanz in den Mai!
