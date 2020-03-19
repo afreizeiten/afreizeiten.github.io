@@ -15,10 +15,7 @@ Die Erreichbarkeit des Freizeitwerkes ist
 
 # Impressum
 
-> Selbsthilfe-Freizeitwerk e.V.<br>
-> c/o Klaus Oltmanns<br>
-> Helmstrasse 4<br>
-> 10827 Berlin
+
 
 Kontakt zu dieser Seite
 
