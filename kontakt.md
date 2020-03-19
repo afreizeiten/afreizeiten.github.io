@@ -15,6 +15,10 @@ Die Erreichbarkeit des Freizeitwerkes ist
 
 # Impressum
 
+> Selbsthilfe-Freizeitwerk e.V.<br>
+> c/o Anne Schulz<br>
+> Wartbergstraße 43<br>
+> 74076 Heilbronn
 
 
 Kontakt zu dieser Seite
