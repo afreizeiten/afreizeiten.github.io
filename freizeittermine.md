@@ -4,44 +4,7 @@ title: Termine
 ---
 # Freizeittermine
 
-----------------------------------------------------------------------------
-
-06.03.2020 – 27.03.2020
-
-A-Freizeit in der Türkei 
-
-Ab in die Wärme! Nach Side am Mittelmeer! 
-
-Hotel Febeach Side – Landeskategorie: 4Sterne – ALL INCLUSIVE
-
-Freizeit von Gerhard
-
-[Anmeldung Türkei 2020.pdf](/pdf/Türkei 2020.pdf)
-
-------------------------------------------------------------------
-
-09.04.2020 – 18.04.2020
-
-Ostern in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-Freizeit von Erich
-
-[Ostern 2020 in Schaippach.pdf](/pdf/Osterfreizeit 2020.pdf)
-
---------------------------------------------------------------------------------
-
-09.04.2020 – 18.04.2020
-
-Ostern in der Bremer Schweiz
-
-Die Freizeit von Mechtild und Hans Günter fällt leider wegen zu geringem Interesse aus.
-Tut uns sehr leid - aber war nicht anders zu machen.
-
-Meldet euch gerne schon für den Herbst an :-)
-
--------------------------------------------------------------------------------
+-------------------------------------------------------------------------------------------------------------
 
 20.05. - 24.05.2020
 
