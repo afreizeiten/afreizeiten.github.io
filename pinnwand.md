@@ -12,7 +12,7 @@ Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
 ## Usedom: Zusätzliche Rücktrittsmöglichkeit bis 15.4.2020
-[Wichtige Info Usdeom](/pdf/Wichtige Info zu Usedom-Freizeit.pdf)
+[Wichtige Info Usedom](/pdf/Wichtige Info zu Usedom-Freizeit.pdf)
 
 ## Info von Anne: Leider wurde die 12-Schritte-Freizeit wegen der Pandemie und den daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt.
 
