@@ -5,12 +5,11 @@ title: Termine
 # Freizeittermine
 
 -------------------------------------------------------------------------------------------------------------
+## Abgesagt!
 
 20.05. - 24.05.2020
 
 12-Schritte-Wanderung in Bad Herrenalb
-
-## Abgesagt!
 
 ![Bad Herrenalb](/images/Leiste Bad Herrenalb2.png) 	
 
