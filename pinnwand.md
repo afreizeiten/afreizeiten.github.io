@@ -11,6 +11,13 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
+## Usedom: Zusätzliche Rücktrittsmöglichkeit bis 15.4.2020
+
+
+
+## Info von Anne: Leider wurde die 12-Schritte-Freizeit wegen der Pandemie und den daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt.
+
+
 -----------------------------------------------------------------------
 
 Beiträge<br>
