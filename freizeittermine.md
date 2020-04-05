@@ -10,7 +10,7 @@ title: Termine
 
 12-Schritte-Wanderung in Bad Herrenalb
 
-## Leider wird die 12-Schritte-Wanderung aufgrund der Pandemie und der daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt.
+## Abgesagt!
 
 ![Bad Herrenalb](/images/Leiste Bad Herrenalb2.png) 	
 
@@ -19,6 +19,8 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 [12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung 2020.pdf)
 
 -------------------------------------------------------------------------------
+
+## Neue Info auf der Pinnwand!
 
 18.06. - 28.06.2020
 
