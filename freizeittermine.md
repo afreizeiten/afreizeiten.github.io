@@ -19,7 +19,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 -------------------------------------------------------------------------------
 
-## Neue Info auf der Pinnwand!
+## Abgesagt!
 
 18.06. - 28.06.2020
 
