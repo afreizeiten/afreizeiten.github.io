@@ -3,13 +3,7 @@ layout: default
 title: Aktuelles
 ---
 
-## Die Osterfreizeit von Erich fällt leider wegen der derzeitigen Lage in Deutschland aus.
 
-## Die Osterfreizeit von Mechtild und Hans Günter in Bremen fällt leider wegen zu geringem Interesse aus.
-
-Tut uns sehr leid - aber war nicht anders zu machen.
-
-Meldet euch gerne schon für den Herbst an :-)
 
 -------------------------------------------------------------------------------------------------------------------------
 
