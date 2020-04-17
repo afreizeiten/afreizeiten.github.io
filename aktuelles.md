@@ -3,6 +3,11 @@ layout: default
 title: Aktuelles
 ---
 
+## Leider wurden folgende Freizeiten  wegen der Pandemie und den daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt:
+
+- die 12-Schritte-Freizeit von Anne
+
+- die Freizeit in Usedom 
 
 
 -------------------------------------------------------------------------------------------------------------------------
