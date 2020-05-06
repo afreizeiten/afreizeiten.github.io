@@ -11,7 +11,7 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
-## Absagen von Freizeiten wegen dem Corona-Virus siehe „Aktuelles“
+## Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
 
 -----------------------------------------------------------------------
 
