@@ -60,14 +60,14 @@ vom 06.11. - 08.11.2020
 
 ------------------------------------------------------------------------------
 
-### Tanz in den Mai!
+### Zu Pfingsten auf die Hohe Loog
 
-'30. April bis 3. Mai 2020
+29. Mai bis 1. Juni 2020
 
-“Erfahrungen teilen, Gefühlen folgen”
+“Ich brauche Menschen”
 
-Ein EA-Wochenende in Donauwörth
- 
+EA-Wandern in Neustadt / Weinstraße
+
 Infos: <https://e-und-a.jimdofree.com/events>
 
 ------------------------------------------------------------------------------
