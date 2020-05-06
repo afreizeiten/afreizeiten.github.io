@@ -62,7 +62,7 @@ vom 06.11. - 08.11.2020
 
 ### Zu Pfingsten auf die Hohe Loog
 
-29. Mai bis 1. Juni 2020
+'29. Mai bis 1. Juni 2020
 
 “Ich brauche Menschen”
 
