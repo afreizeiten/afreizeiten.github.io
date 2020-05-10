@@ -68,7 +68,7 @@ vom 06.11. - 08.11.2020
 
 EA-Wandern in Neustadt / Weinstraße
 
-Infos: <https://e-und-a.jimdofree.com/events>
+Infos: <https://e-und-a.jimdofree.com/events/neustadt/>
 
 ------------------------------------------------------------------------------
 
