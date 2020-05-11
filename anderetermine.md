@@ -62,13 +62,7 @@ vom 06.11. - 08.11.2020
 
 ### Zu Pfingsten auf die Hohe Loog
 
-'29. Mai bis 1. Juni 2020
-
-“Ich brauche Menschen”
-
-EA-Wandern in Neustadt / Weinstraße
-
-Infos: <https://e-und-a.jimdofree.com/events/neustadt/>
+siehe dazu „Aktuelles“
 
 ------------------------------------------------------------------------------
 
