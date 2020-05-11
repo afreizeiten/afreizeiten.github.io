@@ -3,9 +3,7 @@ layout: default
 title: Aktuelles
 ---
 
-## Angebote, die nicht den Corona-Verordnungen der jeweiligen Landesregierung entsprechen und / oder nicht dem Stufenplan der Lockerungen entsprechen, können unter
-
-www.a-freizeiten.de nicht veröffentlicht werden.
+## Angebote, die nicht den Corona-Verordnungen der jeweiligen Landesregierung entsprechen und / oder nicht dem Stufenplan der Lockerungen entsprechen, können unter www.a-freizeiten.de nicht veröffentlicht werden.
 
 ## Leider wurden folgende Freizeiten  wegen der Pandemie und den daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt:
 
