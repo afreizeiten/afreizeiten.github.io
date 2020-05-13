@@ -3,7 +3,13 @@ layout: default
 title: Aktuelles
 ---
 
-## Angebote, die nicht den Corona-Verordnungen der jeweiligen Landesregierung entsprechen und / oder nicht dem Stufenplan der Lockerungen entsprechen, können unter www.a-freizeiten.de nicht veröffentlicht werden.
+## Der Vorstand verweist auf die aktuellen Corona-Verordnungen der jeweiligen Bundesländer:
+
+Derzeit ändern sich die politischen Verordnungen zu den Lockerungen in den verschiedenen Bundesländern in deutlich unterschiedlichem Tempo und auch nicht immer unter der genauen terminlichen Einhaltung des ursprünglich vorgesehenen Stufenplans.
+
+Deshalb sind die Anbieter und Teilnehmer von A-Veranstaltungen, welche nicht vom Selbsthilfe-Freizeitwerk e.V. selber durchgeführt werden, verpflichtet, sich über die jeweils aktuellen Vorgaben und Verordnungen des betreffenden Bundeslandes selbst zu informieren und danach zu handeln.
+
+Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung übernehmen und verweisen auf die Informationspflicht zur jeweils aktuellen Verordnung.
 
 ## Leider wurden folgende Freizeiten  wegen der Pandemie und den daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt:
 
