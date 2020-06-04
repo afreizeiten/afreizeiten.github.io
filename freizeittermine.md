@@ -4,19 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
--------------------------------------------------------------------------------------------------------------
-## Abgesagt!
-
-20.05. - 24.05.2020
-
-12-Schritte-Wanderung in Bad Herrenalb
-
-![Bad Herrenalb](/images/Leiste Bad Herrenalb2.png) 	
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[12-Schritte-Wanderung.pdf](/pdf/12-Schritte-Wanderung 2020.pdf)
-
 -------------------------------------------------------------------------------
 
 ## Abgesagt!
@@ -32,16 +19,6 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 [Usedom 2020.pdf](/pdf/Sommerfreizeit Usedom.pdf)
 
 -------------------------------------------------------------------------------
-
-14.07. - 24.07.2020
-
-'30. Bernrieder 12-Schritte-Seminar 
-
-Freizeit von Elisabeth, Herbert und Mati
-
-[30. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried20-20.02.10-Flyer20.07.14-24.pdf)
-
---------------------------------------------------------------------------
 
 28.07. - 09.08.2020
 
