@@ -68,7 +68,7 @@ vom 06.11. - 08.11.2020
 
 MINIFREIZEIT IN BLUMENTHAL
 
-im August 2020
+'07. - 09. August 2020
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
 
