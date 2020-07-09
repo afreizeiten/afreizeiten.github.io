@@ -6,20 +6,6 @@ title: Termine
 
 -------------------------------------------------------------------------------
 
-## Abgesagt!
-
-18.06. - 28.06.2020
-
-Sommerfreizeit auf der Insel Usedom (Ostsee)
-
-![Freizeit Usedom](/images/Haus Kranich Usedom.png)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-[Usedom 2020.pdf](/pdf/Sommerfreizeit Usedom.pdf)
-
--------------------------------------------------------------------------------
-
 28.07. - 09.08.2020
 
 Sommerfreizeit in Allmannsried
