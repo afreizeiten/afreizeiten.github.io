@@ -77,7 +77,9 @@ und A-Freundinnen und A-Freunde
 
 Claudia und Mechtild laden ein
 
-[Mini-Freizeit Bremen.pdf](pdf/Mini-Freizeit in Blumenthal August 2020.pdf)
+[Mini-Freizeit Bremen.pdf](pdf/Mini-Freizeit 2020 Bremen.pdf)
+
+[Anmeldung.pdf](pdf/Anmeldung Mini 2020.pdf)
 
 --------------------------------------------------------------------------------
 
