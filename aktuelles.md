@@ -11,12 +11,22 @@ Deshalb sind die Anbieter und Teilnehmer von A-Veranstaltungen, welche nicht vom
 
 Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung übernehmen und verweisen auf die Informationspflicht zur jeweils aktuellen Verordnung.
 
-## Leider wurden folgende Freizeiten  wegen der Pandemie und den daraus folgenden gesundheitlichen Vorsorgemaßnahmen abgesagt:
+------------------------------------------------------------------------------------------------------------------------
 
-- die 12-Schritte-Freizeit von Anne
+MINIFREIZEIT IN BLUMENTHAL
+Wochenende für Ehemalige aus 12-Schritte-Kliniken
+und A-Freundinnen und A-Freunde
 
-- die Freizeit in Usedom 
+Wegen der aktuellen corona-bedingten Situation, bitten wir diesmal unbedingt um eure Anmeldung zur Minifreizeit.
+Es stehen nur wenige Matratzenlagerplätze zur Verfügung. Oder ihr meldet euch gleich für ein separates Zimmer
+direkt bei Thorsten unter 0421-602216 an.
+Wer eine weite Anreise hat, kann in Absprache mit Thorsten auch gerne früher kommen bzw. länger bleiben.
+Bitte kommt nur, wenn ihr euch gesund fühlt und keine Verdachtsmomente auf Covid-19, wie Fieber oder Erkältungssymptome
+vorliegen.
 
+Weitere Infos und Anmeldung a-freizeit-bremen@web.de + Telefon 0174 - 297 45 16, ich rufe auf Wunsch zurück.
+
+Mechtild aus Bremen
 -------------------------------------------------------------------------------------------------------------------------
 
 ### Information zu Minifreizeiten in Minden
