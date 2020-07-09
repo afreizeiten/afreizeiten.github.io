@@ -13,7 +13,7 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 ------------------------------------------------------------------------------------------------------------------------
 
-MINIFREIZEIT IN BLUMENTHAL
+### MINIFREIZEIT IN BLUMENTHAL
 Wochenende für Ehemalige aus 12-Schritte-Kliniken
 und A-Freundinnen und A-Freunde
 
@@ -27,6 +27,7 @@ vorliegen.
 Weitere Infos und Anmeldung a-freizeit-bremen@web.de + Telefon 0174 - 297 45 16, ich rufe auf Wunsch zurück.
 
 Mechtild aus Bremen
+
 -------------------------------------------------------------------------------------------------------------------------
 
 ### Information zu Minifreizeiten in Minden
