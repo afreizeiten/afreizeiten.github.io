@@ -42,6 +42,8 @@ Freizeit von Mechtild und Hans Günter
 
 -------------------------------------------------------------------------------
 
+## Storniert!!
+
 16.10.2020 - 23.10.2020
 
 Herbstfreizeit im Solling
