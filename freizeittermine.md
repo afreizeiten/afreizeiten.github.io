@@ -82,6 +82,8 @@ Nähere Informationen erhaltet ihr unter
 
 Winterfreizeit in Rothenburg
 
-[Silvesterfreizeit Rothenburg Vorankündigung](pdf/Winter Rothenburg Vorankündigung.pdf)
+![Rothenburg op der Tauber](/images/rothenburg.png)
+
+[Rothenburg Vorankündigung](pdf/Winter Rothenburg Vorankündigung.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V. 
