@@ -77,3 +77,12 @@ Nähere Informationen erhaltet ihr unter
 <indienfranz@gmail.com>
 
 --------------------------------------------------------------------------------
+
+26.12.2020 - 05.01.2021
+
+Winterfreizeit in Rothenburg
+
+
+
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V. 
