@@ -13,6 +13,12 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 ------------------------------------------------------------------------------------------------------------------------
 
+## Die Freizeit im Solling findet nicht statt.
+
+Nähere Informationen entnehmt bitte dem nächsten (2.) Rundbrief. 
+
+-------------------------------------------------------------------------------------------------------------------------
+
 ### MINIFREIZEIT IN BLUMENTHAL
 Wochenende für Ehemalige aus 12-Schritte-Kliniken
 und A-Freundinnen und A-Freunde
