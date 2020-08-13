@@ -4,18 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
--------------------------------------------------------------------------------
-
-28.07. - 09.08.2020
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-Freizeit von Wolfgang
-
-[1. A-Freizeit 2020.pdf](/pdf/1.a-freizeit 2020.pdf)
-
 -----------------------------------------------------------------------------
 
 25.08. - 03.09.2020
