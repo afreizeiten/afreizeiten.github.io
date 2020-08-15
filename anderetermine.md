@@ -54,14 +54,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN 
 
-(Wochenende für Ehemalige aus 12-Schritte-Kliniken bzw. A-FreundInnen)
-
-vom 28.02. - 01.03.2020 und
-
-vom 06.11. - 08.11.2020
-
-[Mini-Freizeiten Frühjahr und Herbst 2020 Minden.pdf](/pdf/Einladung Mini-Freizeit 2020 Minden.pdf)
-
 ### Es gibt eine Info von Peter zu künftigen Mini-Freizeiten in Minden unter dem Menüpunkt "Aktuelles"
 
 ------------------------------------------------------------------------------
