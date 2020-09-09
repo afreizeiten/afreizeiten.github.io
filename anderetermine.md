@@ -55,24 +55,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 ### Peter lädt ein zu Mini-Freizeiten in MINDEN 
 
 ### Es gibt eine Info von Peter zu künftigen Mini-Freizeiten in Minden unter dem Menüpunkt "Aktuelles"
-
-------------------------------------------------------------------------------
-
-MINIFREIZEIT IN BLUMENTHAL
-
-'07. - 09. August 2020
-
-![Bremen](images/Leiste_Herbst_Bremen.jpg)
-
-Wochenende für Ehemalige aus 12-Schritte-Kliniken
-und A-Freundinnen und A-Freunde
-
-Claudia und Mechtild laden ein
-
-[Mini-Freizeit Bremen.pdf](pdf/Mini-Freizeit 2020 Bremen.pdf)
-
-[Anmeldung.pdf](pdf/Anmeldung Mini 2020.pdf)
-
 --------------------------------------------------------------------------------
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
