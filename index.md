@@ -14,13 +14,13 @@ title: Start
 
   <!-- Wrapper for slides -->
   <div class="carousel-inner" role="listbox">
-    <div class="item">
+    <div class="item active">
       <img class="img-responsive" width="1140" height="370" src="images/Rothenburg.carousel.jpg" alt="Chania">
       <div class="carousel-caption">
         Rothenburg ob der Tauber 2019
       </div>
     </div>
-  <div class="item active">
+  <div class="item">
       <img class="img-responsive" width="1140" height="370" src="images/carousel-1.jpeg" alt="Chania">
       <div class="carousel-caption">
         Schaippachmühle 2012 - Noer 2012
