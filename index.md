@@ -28,9 +28,9 @@ title: Start
       </div>
     </div>
     <div class="item">
-      <img class="img-responsive" width="1140" height="370" src="images/carousel-2.jpeg" alt="Chania">
+      <img class="img-responsive" width="1140" height="370" src="images/Rothenburg.carousel.jpg" alt="Chania">
       <div class="carousel-caption">
-        Niederalfingen 2004 - Bremen 2013
+        Rothenburg ob der Tauber 2019
       </div>
     </div>
 
