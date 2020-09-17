@@ -59,6 +59,6 @@ Winterfreizeit in Rothenburg
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
-[Rothenburg Vorankündigung](pdf/Winter Rothenburg Vorankündigung.pdf)
+[Winterfreizeit Rothenburg 2020](pdf/Silv_ Rothb_5_mit_Logo.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V. 
