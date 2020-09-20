@@ -70,6 +70,6 @@ Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
-# Die Freizeit findet statt. Die Einladung wird in Kürze hier veröffentlicht!
+## Die Freizeit findet statt. Die Einladung wird in Kürze hier veröffentlicht!
 
 Freizeit von Erich
