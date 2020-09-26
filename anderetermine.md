@@ -51,10 +51,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-
-### Peter lädt ein zu Mini-Freizeiten in MINDEN 
-
-### Es gibt eine Info von Peter zu künftigen Mini-Freizeiten in Minden unter dem Menüpunkt "Aktuelles"
 --------------------------------------------------------------------------------
 
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
