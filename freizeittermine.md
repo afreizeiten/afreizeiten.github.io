@@ -70,6 +70,6 @@ Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
-## Die Freizeit findet statt. Die Einladung wird in Kürze hier veröffentlicht!
+[Weihnachten 2020 in Schaippach](pdf/Einladung_Weihnachtsfreizeit_Schaippach_2020.pdf)
 
 Freizeit von Erich
