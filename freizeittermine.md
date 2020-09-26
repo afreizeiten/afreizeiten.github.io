@@ -64,7 +64,7 @@ Winterfreizeit in Rothenburg
 Freizeit vom Selbsthilfe-Freizeitwerk e.V. 
 
 ---------------------------------------------------------------------------------
-27.12.2020 - 04.01.2021
+28.12.2020 - 04.01.2021
 
 Weihnachten in der Schaippachmühle
 
