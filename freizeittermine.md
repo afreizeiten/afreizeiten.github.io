@@ -62,3 +62,15 @@ Weihnachten in der Schaippachmühle
 [Weihnachten 2020 in Schaippach](pdf/Einladung_Weihnachtsfreizeit_Schaippach_2020neu.pdf)
 
 Freizeit von Erich
+
+---------------------------------------------------------------------------------
+
+03.04.2021 - 11.04.2021
+
+Osterfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Osterfreizeit in Allmannsried 2021.pdf](/pdf/A-Oster-Freizeit 2021 (1).pdf)
+
+Freizeit von Wolfgang
