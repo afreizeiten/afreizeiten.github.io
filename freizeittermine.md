@@ -65,6 +65,18 @@ Freizeit von Erich
 
 ---------------------------------------------------------------------------------
 
+28.02.2021 - 07.03.2021
+
+Winter- und Skifreizeit in Ruhpolding
+
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
+
+[Skifreizeit 2021 Ruhpolding.pdf](/pdf/A_Winter_und_Skifreizeit_2021.pdf)
+
+Freizeit von Gerti
+
+----------------------------------------------------------------------------------
+
 03.04.2021 - 11.04.2021
 
 Osterfreizeit in Allmannsried
