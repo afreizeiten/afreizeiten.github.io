@@ -3,17 +3,6 @@ layout: default
 title: Termine
 ---
 # Freizeittermine
------------------------------------------------------------------------------
-
-27.09. - 06.10.2020 (9 Tage!)
-
-Herbstfreizeit in der Bremer Schweiz
-
-![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
-
-Freizeit von Mechtild und Hans Günter
-
-[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2020.pdf)
 
 -------------------------------------------------------------------------------
 
