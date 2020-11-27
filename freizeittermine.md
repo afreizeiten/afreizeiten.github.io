@@ -8,6 +8,8 @@ title: Termine
 
 26.12.2020 - 05.01.2021
 
+## Wegen der aktuellen Corona-Situation abgesagt !
+
 Winterfreizeit in Rothenburg
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
