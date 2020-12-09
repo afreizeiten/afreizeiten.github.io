@@ -52,3 +52,13 @@ Osterfreizeit in Allmannsried
 [Osterfreizeit in Allmannsried 2021.pdf](/pdf/A-Oster-Freizeit 2021 (1).pdf)
 
 Freizeit von Wolfgang
+
+------------------------------------------------------------------------------
+
+12.05.2021 - 16.05.2021
+
+12-Schritte-Wanderung 2021 in der Südheide
+
+[12-Schritte-Wanderung.pdf](/pdf/2021 12-Schritte-Wanderung.pdf)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
