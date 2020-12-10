@@ -59,6 +59,8 @@ Freizeit von Wolfgang
 
 12-Schritte-Wanderung 2021 in der Südheide
 
+![Südheide](/images/wanderungsuedheide.png)
+
 [12-Schritte-Wanderung.pdf](/pdf/2021 12-Schritte-Wanderung.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
