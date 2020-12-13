@@ -61,6 +61,6 @@ Freizeit von Wolfgang
 
 ![Südheide](/images/wanderungsuedheide.png)
 
-[12-Schritte-Wanderung.pdf](/pdf/2021 12-Schritte-Wanderung Gerhard korrigierte Endfassung.pdf)
+[12-Schritte-Wanderung.pdf](/pdf/2021 12-Schritte-Wanderung Gerhard super-korrigierte Endfassung.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
