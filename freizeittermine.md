@@ -21,6 +21,8 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 ---------------------------------------------------------------------------------
 27.12.2020 - 03.01.2021
 
+## Wegen der aktuellen Corona-Situation abgesagt !
+
 Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
