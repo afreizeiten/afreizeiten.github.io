@@ -12,7 +12,7 @@ Virtuelle Weihnachts- und Silvesterfreizeit
 
 von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
 
-[Virtuelle Winterfreizeit] (pdf/Endfassung Virtuelle Freizeit.pdf)
+[Virtuelle Winterfreizeit](pdf/Endfassung Virtuelle Freizeit.pdf)
 
 -------------------------------------------------------------------------------
 
