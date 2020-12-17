@@ -4,6 +4,16 @@ title: Termine
 ---
 # Freizeittermine
 
+------------------------------------------------------------------------------
+
+24.12.2020 – 5.1.2021
+
+Virtuelle Weihnachts- und Silvesterfreizeit         
+
+von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
+
+[Virtuelle Winterfreizeit] (pdf/Endfassung Virtuelle Freizeit.pdf)
+
 -------------------------------------------------------------------------------
 
 26.12.2020 - 05.01.2021
