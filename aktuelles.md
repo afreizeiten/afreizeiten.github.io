@@ -13,6 +13,10 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
+## Die Osterfreizeit in Allmannsried wurde wegen zu wenig Anmeldungen abgesagt!
+
+-----------------------------------------------------------------------------------------------------------------------------
+
 ## Gilt immer!
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
