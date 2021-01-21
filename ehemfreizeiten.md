@@ -8,6 +8,11 @@ title: Ehemalige Freizeiten
 
 ## Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
+Virtuelle Weihnachtsfreizeit 
+
+
+
+
 Winterfreizeit in Rothenburg ob der Tauber 
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
