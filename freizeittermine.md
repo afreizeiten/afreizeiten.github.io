@@ -6,45 +6,6 @@ title: Termine
 
 ------------------------------------------------------------------------------
 
-24.12.2020 – 5.1.2021
-
-Virtuelle Weihnachts- und Silvesterfreizeit         
-
-von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
-
-![virtuelle Weihnachtsfreizeit](/images/weihnachtfreizeit.png)
-
-[Virtuelle Winterfreizeit](pdf/Endfassung Virtuelle Freizeit.pdf)
-
--------------------------------------------------------------------------------
-
-26.12.2020 - 05.01.2021
-
-## Wegen der aktuellen Corona-Situation abgesagt !
-
-Winterfreizeit in Rothenburg
-
-![Rothenburg op der Tauber](/images/rothenburg.png)
-
-[Winterfreizeit Rothenburg 2020](pdf/Silv_ Rothb_5_mit_Logo.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V. 
-
----------------------------------------------------------------------------------
-27.12.2020 - 03.01.2021
-
-## Wegen der aktuellen Corona-Situation abgesagt !
-
-Weihnachten in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Weihnachten 2020 in Schaippach](pdf/Einladung_Weihnachtsfreizeit_Schaippach_2020neu.pdf)
-
-Freizeit von Erich
-
----------------------------------------------------------------------------------
-
 28.02.2021 - 07.03.2021
 
 Winter- und Skifreizeit in Ruhpolding
@@ -54,18 +15,6 @@ Winter- und Skifreizeit in Ruhpolding
 [Skifreizeit 2021 Ruhpolding.pdf](/pdf/A_Winter_und_Skifreizeit_2021.pdf)
 
 Freizeit von Gerti
-
-----------------------------------------------------------------------------------
-
-03.04.2021 - 11.04.2021
-
-Osterfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Osterfreizeit in Allmannsried 2021.pdf](/pdf/A-Oster-Freizeit 2021 (1).pdf)
-
-Freizeit von Wolfgang
 
 ------------------------------------------------------------------------------
 
