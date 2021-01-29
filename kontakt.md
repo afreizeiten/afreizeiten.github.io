@@ -25,6 +25,4 @@ Kontakt zu dieser Seite
 
 <webmaster@a-freizeiten.de>
 
-### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
-
 ---
