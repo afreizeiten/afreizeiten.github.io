@@ -72,3 +72,8 @@ Am Sonnenhang 13,
 <a.fischer@fischerskfzwerkstatt.de>
 
 Tel: 0151 27237547
+
+
+### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
+
+
