@@ -132,3 +132,5 @@ Aktivitäten   rund um das 12-Schritte-Selbsthilfe-Programm
 Homepage für ehemalige Adulaner/Hochgrater
   <http://www.ehemalige-adulaner-hochgrater.de> 
    
+### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
+
