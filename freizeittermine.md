@@ -47,4 +47,13 @@ Freizeit von Wolfgang
 
 [2. A-Freizeit 2021.pdf](/pdf/A-Freizeit Sommer 2021 vom 23.8. bis 1.9. (1).pdf)
 
+-----------------------------------------------------------------------------------------------------
+
+05.09. – 12.09.2021
+
+Herbstfreizeit von Gerti
+
+[Herbstfreizeit Ruhpolding.pdf](/pdf/Herbstfreizeit_2021_Anonym.pdf)
+
+-----------------------------------------------------------------------------------------------------
 
