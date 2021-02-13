@@ -51,7 +51,12 @@ Freizeit von Wolfgang
 
 05.09. – 12.09.2021
 
-Herbstfreizeit von Gerti
+Herbstfreizeit in Ruhpolding
+
+![ruhpolding](/images/bildleiste_2021.png)
+
+Freizeit von Gerti
+
 
 [Herbstfreizeit Ruhpolding.pdf](/pdf/Herbstfreizeit_2021_Anonym.pdf)
 
