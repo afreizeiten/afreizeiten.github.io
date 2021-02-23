@@ -73,11 +73,11 @@ Freizeit von Gerti
 
 -----------------------------------------------------------------------------------------------------
 
- 26.12.2021 bis 05.01.2022
+26.12.2021 bis 05.01.2022
 
 Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
 
-![Südheide](/images/wanderungsuedheide.png)
+![Rothenburg op der Tauber](/images/rothenburg.png)
 
 [Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
 
