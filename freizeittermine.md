@@ -29,7 +29,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 Sommerfreizeit auf Usedom - Vorankündigung
 
-![Südheide](/images/wanderungsuedheide.png)
+![Freizeit Usedom](/images/Haus Kranich Usedom.png)
 
 [Usedom 2020.pdf](/pdf/2021 Sommerfreizeit Usedom Vorankündigung.pdf)
 
