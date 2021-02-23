@@ -25,6 +25,18 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 ------------------------------------------------------------------------------
 
+13.06.2021 - 25.6.2021
+
+Sommerfreizeit auf Usedom - Vorankündigung
+
+![Südheide](/images/wanderungsuedheide.png)
+
+[Usedom 2020.pdf](/pdf/2021 Sommerfreizeit Usedom Vorankündigung.pdf)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+------------------------------------------------------------------------------
+
 24.07. - 05.08.2021
 
 Sommerfreizeit in Allmannsried
@@ -57,8 +69,18 @@ Herbstfreizeit in Ruhpolding
 
 Freizeit von Gerti
 
-
 [Herbstfreizeit Ruhpolding.pdf](/pdf/Herbstfreizeit_2021_Anonym.pdf)
 
 -----------------------------------------------------------------------------------------------------
 
+ 26.12.2021 bis 05.01.2022
+
+Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
+
+![Südheide](/images/wanderungsuedheide.png)
+
+[Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
+
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+
+-----------------------------------------------------------------------------------------------------
