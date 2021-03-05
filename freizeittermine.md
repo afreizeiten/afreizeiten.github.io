@@ -23,6 +23,10 @@ Winter- und Skifreizeit in Ruhpolding
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
+Hedwig Hamburg, möchte gerne die 12 Schritte Wanderung mitmachen, 
+aber nur mit dem Fahrrad. Wer hat Lust mit ihr Radtouren zu unternehmen? 
+LG Gerhard HH
+
 ------------------------------------------------------------------------------
 
 13.06.2021 - 25.6.2021
