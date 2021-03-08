@@ -59,20 +59,7 @@ Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph
 
 <http://www.12schrittewochenende.de>
 
-### TA ME SE RE BE Gruppen/Meetings: Tanzen, Menschen, Selbsthilfe, Reden, Bewegung
-
-Jeden Mittwoch, 19:15 Uhr, Falkenklause, 87730 Bad Grönenbach/Ittelsburg, Falkenweg 4.
-
-__Veranstalter:__
-
-Andreas Fischer (Ehemaliger),
-Am Sonnenhang 13,
-87496 Untrasried
-
-<a.fischer@fischerskfzwerkstatt.de>
-
-Tel: 0151 27237547
-
+--------------------------------------------------------------------------------
 
 ### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
 
