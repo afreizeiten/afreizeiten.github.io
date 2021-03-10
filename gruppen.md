@@ -5,74 +5,78 @@ title: 12 Schritte Gruppen
 # 12-Schritte-Gruppen
 
 AA: Anonyme Alkoholiker
-   <http://www.anonyme-alkoholiker.de>
+   <https://www.anonyme-alkoholiker.de>
 
 AAS: Anonyme Arbeitssüchtige
-   <http://www.arbeitssucht.de>
+   <https://www.arbeitssucht.de>
 
 ACA: Adult Children of Alcoholics - Erwachsene Kinder von Alkoholikern
-   <http://www.erwachsenekinder.org>
+   <https://www.erwachsenekinder.org>
 
 EKS: Erwachsene Kinder von suchtkranken Eltern/Erziehern
-   <http://www.eksev.org>
+   <https://www.eksev.org>
 
 Al-Anon, Alateen: Angehörige und Freunde von Alkoholikern 
-   <http://www.al-anon.de>
+   <https://www.al-anon.de>
 
 AM: Anonyme Messies
-   <http://members.aol.com/messies>
+   <https://members.aol.com/messies>
 
 AR: Anonyme Raucher
-   <http://www.nicotine-anonymous.org>
+   <https://www.nicotine-anonymous.org>
 
 AS: Anonyme Sexaholiker
-   <http://www.sa.org>
+   <https://www.sa.org>
 
 BA
 Anonyme Borderliner
-  <http://www.borderliners-anonymous.de>
+  <https://www.borderliners-anonymous.de>
 
 CLA
 Clutterer Anonymous
-  <http://www.clutterers-anonymous.de>
+  <https://www.clutterers-anonymous.de>
 
 Co-Anon
 Angehörige     von Kokainabhängigen
-  <http://www.co-anon.org>
+  <https://www.co-anon.org>
 
 CoDA
 Co-Dependents Anonymous
-  <http://www.coda-deutschland.de>
+  <https://www.coda-deutschland.de>
 
 DA
 Debtors Anonymous
-  <http://www.anonyme-schuldner.org>
+  <https://www.anonyme-schuldner.org>
+
+UA
+Anonyme Unterverdiener
+  <https://www.anonyme-unterverdiener.de>
 
 EA
 Emotions Anonymous
-  <http://www.ea-selbsthilfe.net>
-  <http://www.emotionsanonymous.ch>
+  <https://www.ea-selbsthilfe.net>
+  <https://www.emotionsanonymous.ch>
 
 FA
 Food Addicts in Recovery Anonymous - Anonyme Esssüchtige in Genesung
-<http://www.foodaddicts.org/deutsch>
+<https://www.foodaddicts.org/deutsch>
 
 GA
 Gamblers   Anonymous 
 Anonyme Spieler
-  <http://www.gamblersanonymous.org>
+  <https://www.gamblersanonymous.org>
 
 GamAnon
 Angehörige   von GA
-  <http://www.gam-anon.org>
+  <https://www.gam-anon.org>
 
 HIV  Anonymous
 HIV   Anonymous
-  <http://www.hivanonymous.com>
+  <https://www.hivanonymous.com>
 
 I.S.A.
 Incest Survivors Anonymous - Anonyme Inzestüberlebende
-  <http://www.isa-anonyme-inzest-ueberlebende.de>
+  <https://www.isa-anonyme-inzest-ueberlebende.de>
 
 Kuschelmeeting
  offen   für alle A-Gruppen-Angehörige
@@ -84,7 +88,7 @@ Make Today Count - Selbsthilfegruppe für lebensbedrohlich Erkrankte
 
 NA
  Narcotics   Anonymous
-  <http://www.narcotics-anonymous.de>
+  <https://www.narcotics-anonymous.de>
 
 NACR,   ACH
  National   Association for Christian Recovery -  Arbeitsgemeinschaft für
@@ -94,43 +98,43 @@ Christliche 12-Schritte-Gruppen
 
 NarAnon
 Angehörige   von NA
-  <http://www.naranon.de>
+  <https://www.naranon.de>
 
 OA
 Overeaters Anonymous - Anonyme Eßsüchtige
-  <http://www.overeaters-anonymous.de>
+  <https://www.overeaters-anonymous.de>
 
 OCA
 Obsessive   Compulsive    Anonymous - Genesung
 von der Zwangsstörung
-  <http://www.zwaenge-oca.de>
+  <https://www.zwaenge-oca.de>
 
 SAA
 Sex Addicts Anonymous
-  <http://www.saa-recovery.org>
+  <https://www.saa-recovery.org>
 
 RCA
 12-Schritte-Paare in Genesung
-  <http://www.recovering-couples.de>
+  <https://www.recovering-couples.de>
 
 SIA
 Survivors of   Incest Anonymous
-  <http://www.siawso.org>
+  <https://www.siawso.org>
 
 S.L.A.A.
 Sex-   and Love Addicts Anonymous
-  <http://www.slaa.de>
+  <https://www.slaa.de>
 
 Teen-Anon
 Help   for Teens Who Drink or Drug And All Those Who Love Them
-  <http://www.teen-anon.com>
+  <https://www.teen-anon.com>
 
 12-steps
 Aktivitäten   rund um das 12-Schritte-Selbsthilfe-Programm
-  <http://www.12steps.de>
+  <https://www.12steps.de>
 
 Homepage für ehemalige Adulaner/Hochgrater
-  <http://www.ehemalige-adulaner-hochgrater.de> 
-   
+  <https://www.ehemalige-adulaner-hochgrater.de> 
+
 ### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
 
