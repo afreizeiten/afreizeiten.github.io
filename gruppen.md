@@ -50,7 +50,7 @@ Debtors Anonymous
 
 UA
 Anonyme Unterverdiener
-  <https://www.anonyme-unterverdiener.de>
+  <https://anonyme-unterverdiener.de>
 
 EA
 Emotions Anonymous
