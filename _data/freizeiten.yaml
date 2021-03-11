@@ -1,10 +1,14 @@
-- name: Winterfreizeit 2021
-  ort: Rothenburg ob ter Tauber
+- name: "Winterfreizeit 2021/2022"
+  ort: "Rothenburg op der Tauber"
   von: 26.12.2021
   bis: 05.01.2022
+  pdf: "/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf"
+  image: "/images/rothenburg.png"
   veranstalter: 3
-- name: Sommerfreizeit 1
+- name: "Sommerfreizeit 1"
   ort: Allmansried
   von: 24.07.2021
   bis: 05.08.2021
+  pdf: "/pdf/A-Sommer-Freizeit 2021 (1) (1).pdf"
+  image: "/images/allmansried.jpeg"
   veranstalter: 2
