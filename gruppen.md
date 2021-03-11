@@ -8,7 +8,7 @@ AA: Anonyme Alkoholiker
    <https://www.anonyme-alkoholiker.de>
 
 AAS: Anonyme Arbeitssüchtige
-   <https://www.arbeitssucht.de>
+   <http://www.arbeitssucht.de>
 
 ACA: Adult Children of Alcoholics - Erwachsene Kinder von Alkoholikern
    <https://www.erwachsenekinder.org>
@@ -19,9 +19,6 @@ EKS: Erwachsene Kinder von suchtkranken Eltern/Erziehern
 Al-Anon, Alateen: Angehörige und Freunde von Alkoholikern 
    <https://www.al-anon.de>
 
-AM: Anonyme Messies
-   <https://members.aol.com/messies>
-
 AR: Anonyme Raucher
    <https://www.nicotine-anonymous.org>
 
@@ -30,11 +27,11 @@ AS: Anonyme Sexaholiker
 
 BA
 Anonyme Borderliner
-  <https://www.borderliners-anonymous.de>
+  <http://www.borderliners-anonymous.de>
 
 CLA
 Clutterer Anonymous
-  <https://www.clutterers-anonymous.de>
+  <https://clutterersanonymous.org>
 
 Co-Anon
 Angehörige     von Kokainabhängigen
@@ -76,7 +73,7 @@ HIV   Anonymous
 
 I.S.A.
 Incest Survivors Anonymous - Anonyme Inzestüberlebende
-  <https://www.isa-anonyme-inzest-ueberlebende.de>
+  <http://www.isa-anonyme-inzest-ueberlebende.de>
 
 Kuschelmeeting
  offen   für alle A-Gruppen-Angehörige
@@ -84,7 +81,7 @@ Kuschelmeeting
 
 MTC
 Make Today Count - Selbsthilfegruppe für lebensbedrohlich Erkrankte
-  <http://www.ourcommunity.com.au/directories/listing?id743/directories/listing?id743>
+  <https://members.tripod.com/~angel_pie/mtc.html>
 
 NA
  Narcotics   Anonymous
@@ -98,11 +95,11 @@ Christliche 12-Schritte-Gruppen
 
 NarAnon
 Angehörige   von NA
-  <https://www.naranon.de>
+  <http://www.naranon.de>
 
 OA
 Overeaters Anonymous - Anonyme Eßsüchtige
-  <https://www.overeaters-anonymous.de>
+  <http://www.overeaters-anonymous.de>
 
 OCA
 Obsessive   Compulsive    Anonymous - Genesung
@@ -134,7 +131,6 @@ Aktivitäten   rund um das 12-Schritte-Selbsthilfe-Programm
   <https://www.12steps.de>
 
 Homepage für ehemalige Adulaner/Hochgrater
-  <https://www.ehemalige-adulaner-hochgrater.de> 
+  <https://www.ehemalige-adulaner-hochgrater.de>
 
-### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
-
+__Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.__
