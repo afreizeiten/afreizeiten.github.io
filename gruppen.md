@@ -2,7 +2,7 @@
 layout: default
 title: 12 Schritte Gruppen
 ---
-# 12-Schritte-Gruppen
+## 12-Schritte-Gruppen
 
 AA: Anonyme Alkoholiker
    <https://www.anonyme-alkoholiker.de>
@@ -16,7 +16,7 @@ ACA: Adult Children of Alcoholics - Erwachsene Kinder von Alkoholikern
 EKS: Erwachsene Kinder von suchtkranken Eltern/Erziehern
    <https://www.eksev.org>
 
-Al-Anon, Alateen: Angehörige und Freunde von Alkoholikern 
+Al-Anon, Alateen: Angehörige und Freunde von Alkoholikern
    <https://www.al-anon.de>
 
 AR: Anonyme Raucher
@@ -59,7 +59,7 @@ Food Addicts in Recovery Anonymous - Anonyme Esssüchtige in Genesung
 <https://www.foodaddicts.org/deutsch>
 
 GA
-Gamblers   Anonymous 
+Gamblers   Anonymous
 Anonyme Spieler
   <https://www.gamblersanonymous.org>
 
