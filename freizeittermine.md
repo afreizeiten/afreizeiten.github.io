@@ -12,8 +12,6 @@ von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
 
 ![virtuelle Weihnachtsfreizeit](/images/weihnachtfreizeit.png)
 
-[Virtuelle Osterfreizeit](pdf/Einladung VOF 2021-1.pdf)
-
 ------------------------------------------------------------------------------
 
 12.05.2021 - 16.05.2021
