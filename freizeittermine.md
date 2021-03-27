@@ -6,11 +6,11 @@ title: Termine
 
 01.04.2021 – 10.04.2021
 
-Virtuelle Osterfreizeit         
+Virtuelle Osterfreizeit
 
 von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
 
-![virtuelle Weihnachtsfreizeit](/images/weihnachtfreizeit.png)
+![virtuelle Weihnachtsfreizeit](/images/ostern2021.jpg)
 
 ------------------------------------------------------------------------------
 
