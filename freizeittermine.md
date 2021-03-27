@@ -10,7 +10,7 @@ Virtuelle Osterfreizeit
 
 von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
 
-![virtuelle Weihnachtsfreizeit](/images/ostern2021.jpg)
+![virtuelle Osterfreizeit 2021](/images/ostern2021.jpg)
 
 ------------------------------------------------------------------------------
 
