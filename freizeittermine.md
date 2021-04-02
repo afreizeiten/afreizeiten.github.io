@@ -6,11 +6,11 @@ title: Termine
 
 01.04.2021 – 10.04.2021
 
-Virtuelle Osterfreizeit
-
-von der Arbeitsgruppe aus dem telefonischen 11-Uhr-Morgen-Go-Round
+“Virtuelle Osterfreizeit von der A-Gemeinschaft erleben und gestalten“
 
 ![virtuelle Osterfreizeit 2021](/images/ostern2021.jpg)
+
+[Virtuelle Osterfreizeit.pdf](/pdf/Einladung VOF Website 2021.pdf)
 
 ------------------------------------------------------------------------------
 
