@@ -32,11 +32,11 @@ LG Gerhard HH
 
 13.06.2021 - 25.6.2021
 
-Sommerfreizeit auf Usedom - Vorankündigung
+Sommerfreizeit auf Usedom
 
 ![Freizeit Usedom](/images/Haus Kranich Usedom.png)
 
-[Usedom 2021.pdf](/pdf/2021 Sommerfreizeit Usedom Vorankündigung.pdf)
+[Usedom 2021.pdf](/pdf/9. 2021 Sommerfreizeit Usedom.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
