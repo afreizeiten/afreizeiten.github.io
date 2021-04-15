@@ -4,14 +4,6 @@ title: Termine
 ---
 # Freizeittermine
 
-01.04.2021 – 10.04.2021
-
-“Virtuelle Osterfreizeit von der A-Gemeinschaft erleben und gestalten“
-
-![virtuelle Osterfreizeit 2021](/images/ostern2021.jpg)
-
-[Virtuelle Osterfreizeit.pdf](/pdf/Einladung VOF Website 2021.pdf)
-
 ------------------------------------------------------------------------------
 
 12.05.2021 - 16.05.2021
