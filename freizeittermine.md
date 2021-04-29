@@ -33,6 +33,15 @@ Sommerfreizeit auf Usedom
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 ------------------------------------------------------------------------------
+13.07.2021 - 23.07.2021
+
+'31. Bernrieder 12-Schritte-Seminar 
+
+Freizeit von Elisabeth und Mati
+
+[31. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried21-21.04.27-1Flyer.pdf)
+
+-------------------------------------------------------------------------------
 
 24.07. - 05.08.2021
 
