@@ -6,6 +6,8 @@ title: Termine
 
 ------------------------------------------------------------------------------
 
+## Die Jugendherberge hat die Freizeit heute (04.05.2021) storniert!
+
 12.05.2021 - 16.05.2021
 
 12-Schritte-Wanderung 2021 in der Südheide
