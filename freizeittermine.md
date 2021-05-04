@@ -6,7 +6,7 @@ title: Termine
 
 ------------------------------------------------------------------------------
 
-## Die Jugendherberge hat die Freizeit heute (04.05.2021) storniert!
+## Die Jugendherberge hat die 12-Schritte-Wanderung heute (04.05.2021) storniert!
 
 12.05.2021 - 16.05.2021
 
