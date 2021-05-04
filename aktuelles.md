@@ -13,7 +13,7 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
-## Die Osterfreizeit in Allmannsried wurde wegen zu wenig Anmeldungen abgesagt!
+## Die Jugendherberge hat die 12-Schritte-Wanderung heute (04.05.2021) storniert!
 
 -----------------------------------------------------------------------------------------------------------------------------
 
