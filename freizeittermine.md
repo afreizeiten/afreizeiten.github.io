@@ -6,7 +6,9 @@ title: Termine
 
 ------------------------------------------------------------------------------
 
-13.06.2021 - 25.6.2021
+## Die Usedom Freizeit beginnt, durch die Corona Maßnahmen, erst am 14.06., einen Tag später.
+
+14.06.2021 - 25.6.2021
 
 Sommerfreizeit auf Usedom
 
