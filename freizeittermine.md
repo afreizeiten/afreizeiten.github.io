@@ -6,24 +6,6 @@ title: Termine
 
 ------------------------------------------------------------------------------
 
-## Die Jugendherberge hat die 12-Schritte-Wanderung heute (04.05.2021) storniert!
-
-12.05.2021 - 16.05.2021
-
-12-Schritte-Wanderung 2021 in der Südheide
-
-![Südheide](/images/wanderungsuedheide.png)
-
-[12-Schritte-Wanderung.pdf](/pdf/2021 12-Schritte-Wanderung Gerhard super-korrigierte Endfassung.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
-Hedwig Hamburg, möchte gerne die 12 Schritte Wanderung mitmachen, 
-aber nur mit dem Fahrrad. Wer hat Lust mit ihr Radtouren zu unternehmen? 
-LG Gerhard HH
-
-------------------------------------------------------------------------------
-
 13.06.2021 - 25.6.2021
 
 Sommerfreizeit auf Usedom
