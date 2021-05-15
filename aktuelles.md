@@ -13,7 +13,7 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
-## Die Jugendherberge hat die 12-Schritte-Wanderung heute (04.05.2021) storniert!
+## Die Usedom Freizeit beginnt, durch die Corona Maßnahmen, erst am 14.06., einen Tag später.
 
 -----------------------------------------------------------------------------------------------------------------------------
 
