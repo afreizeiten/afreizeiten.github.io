@@ -19,6 +19,19 @@ Sommerfreizeit auf Usedom
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 ------------------------------------------------------------------------------
+
+25.06. - 27.06.2021
+
+Minifreizeit in der Bremer Schweiz
+
+![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Claudia
+
+[Minifreizeit Bremen 2021.pdf](/pdf/Einladung Mini-Freizeit 2021 Bremen.pdf)
+
+------------------------------------------------------------------------------
+
 13.07.2021 - 23.07.2021
 
 '31. Bernrieder 12-Schritte-Seminar 
