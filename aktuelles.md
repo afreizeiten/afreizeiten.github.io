@@ -13,10 +13,6 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
-## Die Usedom Freizeit beginnt, durch die Corona Maßnahmen, erst am 14.06., einen Tag später.
-
------------------------------------------------------------------------------------------------------------------------------
-
 ## Gilt immer!
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
