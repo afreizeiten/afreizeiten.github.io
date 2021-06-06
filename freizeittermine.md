@@ -76,6 +76,18 @@ Freizeit von Gerti
 
 -----------------------------------------------------------------------------------------------------
 
+14.10. - 24.10.2021
+
+Herbstfreizeit in der Bremer Schweiz
+
+![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Hans Günter
+
+[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2021.pdf)
+
+------------------------------------------------------------------------------------------------
+
 26.12.2021 bis 05.01.2022
 
 Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
