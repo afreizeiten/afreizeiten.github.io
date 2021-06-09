@@ -13,6 +13,14 @@ Mitfahrgelegenheiten
 
 ## Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
 
+------------------------------------------------------------------------
+
+Hallo,
+ich suche eine Mitfahrgelegenheit oder Teilmitfahrgelegenheit nach Usedom !
+Liane aus Münster/Westfahlen !
+
+Liebe Grüße und g24h
+
 -----------------------------------------------------------------------
 
 Hallo,
