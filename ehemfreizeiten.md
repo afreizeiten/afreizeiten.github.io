@@ -32,6 +32,14 @@ Winterfreizeiten in Blankenheim
 
 ----------------------------------------------------------------------------
 
+Sommerfreizeit auf Usedom
+
+![Freizeit Usedom](/images/Haus Kranich Usedom.png)
+
+[Usedom 2021.pdf](/pdf/9. 2021 Sommerfreizeit Usedom.pdf)
+
+-------------------------------------------------------------------------
+
 Sommerfreizeiten in Binz/Rügen
 
 ![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
