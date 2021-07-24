@@ -177,6 +177,8 @@ Sommerfreizeiten in Allmannsried
 
 ## Freizeit von Elisabeth, Verena und Mati
 
+[31. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried21-21.04.27-1Flyer.pdf)
+
 [29. Bernrieder Schritte-Seminar 2019.pdf](/pdf/Bernried 2019.pdf)
 
 ----------------------------------------------------------------------------
