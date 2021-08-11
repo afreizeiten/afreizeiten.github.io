@@ -53,3 +53,18 @@ Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 -----------------------------------------------------------------------------------------------------
+
+Vorankündigung 
+
+Weihnachtsfreizeit in der Schaippachmühle 
+
+Vom 27.12.2021 bis 04.01.2022 
+Sinntalstr. 31, 97737 Gemünden-Schaippach 
+
+Die Einladungen werden wir Ende September per Mail verschicken 
+und auf die Homepage stellen. 
+Über die im Dezember gültigen Corona-Regeln informieren wir euch 
+vor Beginn der Freizeit 
+In Vorfreude, Erich und Gerburg
+
+
