@@ -54,17 +54,28 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 -----------------------------------------------------------------------------------------------------
 
-Vorankündigung 
+27.12.2021 bis 04.01.2022 
 
-Weihnachtsfreizeit in der Schaippachmühle 
+Weihnachtsfreizeit in der Schaippachmühle - Vorankündigung 
 
-Vom 27.12.2021 bis 04.01.2022 
-Sinntalstr. 31, 97737 Gemünden-Schaippach 
+![Schaippach](/images/schaippach.jpeg)
 
 Die Einladungen werden wir Ende September per Mail verschicken 
-und auf die Homepage stellen. 
+und auf die Homepage stellen.
+
 Über die im Dezember gültigen Corona-Regeln informieren wir euch 
-vor Beginn der Freizeit 
+vor Beginn der Freizeit.
+
 In Vorfreude, Erich und Gerburg
 
+---------------------------------------------------------------------------------------------------
 
+14.04.2022 bis 23.04.2022 
+
+Osterfreizeit in der Schaippachmühle - Vorankündigung 
+
+![Schaippach](/images/schaippach.jpeg)
+
+In Vorfreude, Erich und Gerburg 
+
+---------------------------------------------------------------------------------------------------
