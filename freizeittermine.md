@@ -70,6 +70,18 @@ In Vorfreude, Erich und Gerburg
 
 ---------------------------------------------------------------------------------------------------
 
+19.02.2022 bis 26.02.2022
+
+Skifreizeit in Ruhpolding - Vorankündigung
+
+![Schaippach](/images/schaippach.jpeg)
+
+Die Einladung wird per E-Mail an alle ca. im Oktober 2021 versandt und dann auch auf die Homepage gestellt.
+
+Herzlichst von Gerti aus München
+
+----------------------------------------------------------------------------------------------------
+
 14.04.2022 bis 23.04.2022 
 
 Osterfreizeit in der Schaippachmühle - Vorankündigung 
