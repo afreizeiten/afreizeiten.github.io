@@ -74,7 +74,7 @@ In Vorfreude, Erich und Gerburg
 
 Skifreizeit in Ruhpolding - Vorankündigung
 
-![Schaippach](/images/schaippach.jpeg)
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
 
 Die Einladung wird per E-Mail an alle ca. im Oktober 2021 versandt und dann auch auf die Homepage gestellt.
 
