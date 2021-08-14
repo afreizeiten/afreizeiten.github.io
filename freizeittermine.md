@@ -90,4 +90,17 @@ Osterfreizeit in der Schaippachmühle - Vorankündigung
 
 In Vorfreude, Erich und Gerburg 
 
----------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------
+
+17.09.2022 bis 24.09.2022
+
+Herbstfreizeit in Ruhpolding - Vorankündigung
+
+![ruhpolding](/images/bildleiste_2021.png)
+
+Die Einladung wird per E-Mail an alle im Frühjahr 2022 versandt und dann auch auf die Homepage gestellt.
+
+Herzlichst von Gerti aus München
+
+------------------------------------------------------------------------------------------------------
+
