@@ -103,4 +103,3 @@ Die Einladung wird per E-Mail an alle im Frühjahr 2022 versandt und dann auch a
 Herzlichst von Gerti aus München
 
 ------------------------------------------------------------------------------------------------------
-
