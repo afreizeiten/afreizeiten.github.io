@@ -138,6 +138,8 @@ Freizeiten in Westfriesland
 
 Sommerfreizeiten in Allmannsried
 
+[2021 Sommerfreizeit Allmannsried 2.pdf](/pdf/A-Freizeit Sommer 2021 vom 23.8. bis 1.9. (1).pdf)
+
 [2021 Sommerfreizeit Allmannsried 1.pdf](/pdf/A-Sommer-Freizeit 2021 (1) (1).pdf)
 
 [2020 Sommerfreizeit Allmannsried 2.pdf](/pdf/2. a-freizeit 2020 Ausschreibung.pdf)
