@@ -2,9 +2,23 @@
 layout: default
 title: Termine
 ---
-# Freizeittermine
+# Freizeittermine vom Selbsthilfe-Freizeitwerk e.V.
 
 ------------------------------------------------------------------------------------------------
+
+26.12.2021 bis 05.01.2022
+
+Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
+
+![Rothenburg op der Tauber](/images/rothenburg.png)
+
+[Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
+
+-----------------------------------------------------------------------------------------------------
+
+# Freizeittermine privater Anbieter
+
+Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
 14.10. - 24.10.2021
 
@@ -17,18 +31,6 @@ Freizeit von Mechtild und Hans Günter
 [Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2021.pdf)
 
 ------------------------------------------------------------------------------------------------
-
-26.12.2021 bis 05.01.2022
-
-Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
-
-![Rothenburg op der Tauber](/images/rothenburg.png)
-
-[Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
------------------------------------------------------------------------------------------------------
 
 27.12.2021 bis 04.01.2022 
 
