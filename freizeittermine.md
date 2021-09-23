@@ -4,7 +4,7 @@ title: Termine
 ---
 # Freizeittermine vom Selbsthilfe-Freizeitwerk e.V.
 
-------------------------------------------------------------------------------------------------
+--------------------------------------------------------------------------------------------------
 
 26.12.2021 bis 05.01.2022
 
@@ -15,6 +15,20 @@ Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
 [Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
 
 -----------------------------------------------------------------------------------------------------
+
+04.06.2022 bis 14.06.2022 
+
+Sommerfreizeit in Grömitz - Vorankündigung 
+
+Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
+
+12.06.2023 bis 24.06.2023 
+
+Sommerfreizeit in Grömitz - Vorankündigung 
+
+Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
+
+---------------------------------------------------------------------------------------------------
 
 # Freizeittermine privater Anbieter
 
