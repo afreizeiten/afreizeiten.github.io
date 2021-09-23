@@ -31,7 +31,8 @@ Sommerfreizeit in Grömitz - Vorankündigung
 ![Sommer](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_1.jpeg)
 ![Freizeit](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_2.jpeg)
 ![Grömitz](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_3.jpeg)
-![2022](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_4.jpeg)
+![Verein](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_4.jpeg)
+![2022](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_5.jpeg)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
@@ -40,6 +41,12 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 12.06.2023 bis 24.06.2023 
 
 Sommerfreizeit in Grömitz - Vorankündigung 
+
+![Sommer](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_1.jpeg)
+![Freizeit](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_2.jpeg)
+![Grömitz](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_3.jpeg)
+![Verein](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_4.jpeg)
+![2023](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_5.jpeg)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
