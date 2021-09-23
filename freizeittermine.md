@@ -14,7 +14,15 @@ Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
 
 [Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
 
------------------------------------------------------------------------------------------------------
+----------------------------------------------------------------------------------------------------
+
+25.05.2022 bis 29.05.2022 
+
+12 Schritte Wanderung in Possenhofen am Starnberger See - Vorankündigung
+
+Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
+
+----------------------------------------------------------------------------------------------------
 
 04.06.2022 bis 14.06.2022 
 
@@ -33,7 +41,6 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 # Freizeittermine privater Anbieter
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
-
 
 
 14.10. - 24.10.2021
