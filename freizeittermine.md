@@ -20,11 +20,12 @@ Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
 
 12 Schritte Wanderung in Possenhofen am Starnberger See - Vorankündigung
 
+<div style="whitespace: nowrap;">
 ![12](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_1.jpeg)
 ![Schritte](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_2.jpeg)
 ![Wanderung](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_3.jpeg)
 ![Verein](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_4.jpeg)
-
+</div>
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
 ---------------------------------------------------------------------------------------------------
