@@ -28,6 +28,11 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Sommerfreizeit in Grömitz - Vorankündigung 
 
+![Sommer](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_1.jpeg)
+![Freizeit](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_2.jpeg)
+![Grömitz](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_3.jpeg)
+![2022](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_4.jpeg)
+
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
 --------------------------------------------------------------------------------------------------
