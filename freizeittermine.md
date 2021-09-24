@@ -58,10 +58,12 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 ---------------------------------------------------------------------------------------------------
 
 # Freizeittermine privater Anbieter
+'
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
-
-
+'
+'
+'
 14.10. - 24.10.2021
 
 Herbstfreizeit in der Bremer Schweiz
