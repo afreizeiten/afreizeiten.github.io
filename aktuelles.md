@@ -13,6 +13,10 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
+## Die Einladungen für die Weihnachtsfreizeit 2021 in Schaippach sind fertig und unter Freizeittermine abrufbar!!
+
+-----------------------------------------------------------------------------------------------------------------------------
+
 ## Gilt immer!
 
 Bitte immer rechtzeitig buchen, sonst entstehen evtl.
