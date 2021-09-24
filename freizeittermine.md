@@ -76,15 +76,11 @@ Freizeit von Mechtild und Hans Günter
 
 27.12.2021 bis 04.01.2022 
 
-Weihnachtsfreizeit in der Schaippachmühle - Vorankündigung 
+Weihnachtsfreizeit in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
-Die Einladungen werden wir Ende September per Mail verschicken 
-und auf die Homepage stellen.
-
-Über die im Dezember gültigen Corona-Regeln informieren wir euch 
-vor Beginn der Freizeit.
+[Weihnachten 2021 in Schaippach](pdf/Weihnachtsfreizeit 2021.pdf)
 
 In Vorfreude, Erich und Gerburg
 
