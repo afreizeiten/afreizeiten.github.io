@@ -20,10 +20,7 @@ Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
 
 12 Schritte Wanderung in Possenhofen am Starnberger See - Vorankündigung
 
-![12](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_1.jpeg)
-![Schritte](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_2.jpeg)
-![Wanderung](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_3.jpeg)
-![Verein](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/W_4.jpeg)
+![12 schritte Wanderung Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@W_5.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@W_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@W_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@W_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@W_1.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
@@ -33,11 +30,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Sommerfreizeit in Grömitz - Vorankündigung 
 
-![Sommer](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_1.jpeg)
-![Freizeit](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_2.jpeg)
-![Grömitz](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_3.jpeg)
-![Verein](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_4.jpeg)
-![2022](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_5.jpeg)
+![Sommerfreizeit Grömitz Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@GR_1.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@GR_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@GR_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@GR_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@GR_5.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
@@ -47,11 +40,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Sommerfreizeit in Grömitz - Vorankündigung 
 
-![Sommer](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_1.jpeg)
-![Freizeit](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_2.jpeg)
-![Grömitz](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_3.jpeg)
-![Verein](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_4.jpeg)
-![2023](https://ik.imagekit.io/zcrl68n9dky/tr:n-leiste/https://www.a-freizeiten.de/images/GR_5.jpeg)
+![Sommerfreizeit Grömitz Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@GR_1.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@GR_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@GR_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@GR_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@GR_5.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
