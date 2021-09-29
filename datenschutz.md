@@ -31,3 +31,19 @@ Rechtsgrundlage für die Verarbeitung der Daten ist Art 6 Abs. 1 lit. a DSGVO im
 <a rel="license" href="http://creativecommons.org/licenses/by/4.0/">
 <img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by/4.0/80x15.png" /></a>
 <br />Der Text verwendet Textblöcke von Jan Schallaböck und ist lizensiert unter <a rel="license" href="http://creativecommons.org/licenses/by/4.0/">Creative Commons Attribution 4.0 International License</a>.
+
+Auf dieser Seite werden evtl. Dienste, Funktionen und/oder Inhalte von ImageKit.io eingesetzt: ImageKit Private Limited, 1201, Lords CGHS, Plot -7 Sector-19B, Dwarka, New Delhi, 110075, INDIA.
+Dieser Dienst dient uns dazu, eigene Bilder zu optimieren und in der Größe zu transformieren. Imagekit erfasst:
+
+* Ihre IP-Adresse, eine Ziffernfolge, die Ihren derzeitigen Computeranschluss im Internet identifiziert.
+* die Daten der von uns bei Ihnen gespeicherten Reidentifikationsdatei (HTTP-Cookie),
+* Die von Ihnen aufgerufene URL (die Webseite und ggf. weitere Parameter),
+* Informationen zu dem von Ihnen verwendeten Browser und Betriebssystem, wie deren Name und Version
+* sowie – unter Umständen – die Seite, von der aus Sie zu uns gelangt sind (Referrer-Information).
+* Der Zeitpunkt der Anfrage.
+
+Rechtsgrundlage für die Benutzung von Imagekit ist lt. DSGVO nach Art 6 Abs. 1 lit. f das berechtigtes Interesse.
+ 
+[Datenschutzerklärung von ImageKit](https://imagekit.io/privacy-policy-new/)
+
+
