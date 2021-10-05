@@ -111,3 +111,13 @@ Die Einladung wird per E-Mail an alle im Frühjahr 2022 versandt und dann auch a
 Herzlichst von Gerti aus München
 
 ------------------------------------------------------------------------------------------------------
+
+17.09.2022 bis 01.10.2022
+
+Toskana-Freizeit - Vorankündigung
+
+Freizeit von Monika
+
+------------------------------------------------------------------------------------------------------
+
+
