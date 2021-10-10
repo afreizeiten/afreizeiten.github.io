@@ -8,11 +8,11 @@ title: Termine
 
 26.12.2021 bis 05.01.2022
 
-Winter-Freizeit in Rothenburg ob der Tauber - Vorankündigung
+Winter-Freizeit in Rothenburg ob der Tauber
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
-[Winterfreizeit 2021.pdf](/pdf/2021-22 Silvesterfreizeit Rothenburg  Vorankündigung.pdf)
+[Winterfreizeit 2021.pdf](/pdf/Silvester-Rothenburg-2021.pdf)
 
 ---------------------------------------------------------------------------------------------------
 
