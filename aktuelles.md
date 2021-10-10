@@ -13,7 +13,7 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
-
+## Die Winterfreizeit in Rothenburg ob der Tauber kann ab sofort gebucht werden! Siehe unter Freizeittermine!!
 
 -----------------------------------------------------------------------------------------------------------------------------
 
