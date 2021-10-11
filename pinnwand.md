@@ -11,6 +11,16 @@ title: Pinnwand
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
+----------------------------------------------------------------------
+
+Stefan sucht zwei ruhige Mitbeleger für ein Mehrbettzimmer auf der Schaippach-Weihnachtsfreizeit
+
+<stefanhoffmann55@yahoo.de>
+
+Telefon 04407 715715 
+
+------------------------------------------------------------------------
+
 ## Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
 
 -----------------------------------------------------------------------
