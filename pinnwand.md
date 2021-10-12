@@ -13,7 +13,7 @@ Mitfahrgelegenheiten
 
 ----------------------------------------------------------------------
 
-## Stefan sucht zwei ruhige Mitbeleger für ein Mehrbettzimmer auf der Schaippach-Weihnachtsfreizeit
+## Stefan aus Oldenburg sucht zwei ruhige Mitbeleger für ein Mehrbettzimmer auf der Schaippach-Weihnachtsfreizeit
 
 <stefanhoffmann55@yahoo.de>
 
