@@ -80,11 +80,11 @@ In Vorfreude, Erich und Gerburg
 
 19.02.2022 bis 26.02.2022
 
-Skifreizeit in Ruhpolding - Vorankündigung
+Skifreizeit in Ruhpolding
 
 ![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
 
-Die Einladung wird per E-Mail an alle ca. im Oktober 2021 versandt und dann auch auf die Homepage gestellt.
+[Skifreizeit_2022](pdf/Skifreizeit_2022_anonym.pdf)
 
 Herzlichst von Gerti aus München
 
