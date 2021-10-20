@@ -102,11 +102,11 @@ In Vorfreude, Erich und Gerburg
 
 17.09.2022 bis 24.09.2022
 
-Herbstfreizeit in Ruhpolding - Vorankündigung
+Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-Die Einladung wird per E-Mail an alle im Frühjahr 2022 versandt und dann auch auf die Homepage gestellt.
+[Herbstfreizeit_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
 
 Herzlichst von Gerti aus München
 
