@@ -56,19 +56,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
-'
-
-14.10. - 24.10.2021
-
-Herbstfreizeit in der Bremer Schweiz
-
-![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
-
-Freizeit von Mechtild und Hans Günter
-
-[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2021.pdf)
-
-------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------
 
 27.12.2021 bis 04.01.2022 
 
