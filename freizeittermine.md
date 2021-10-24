@@ -14,6 +14,10 @@ Winter-Freizeit in Rothenburg ob der Tauber
 
 [Winterfreizeit 2021.pdf](/pdf/Silvester-Rothenburg-2021.pdf)
 
+Achtung: Der Frühbucherrabatt für MBZ wird verlängert auf 08.11.2021. Es sind noch MBZ frei!
+
+Bitte füge auf dem Anmeldeformular selbstständig bei Bedarf das Auswahlkästchen „MBZ“ ein.
+
 ---------------------------------------------------------------------------------------------------
 
 25.05.2022 bis 29.05.2022 
