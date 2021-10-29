@@ -36,12 +36,6 @@ Spendenbasis
 
 Infos unter 01782090444 (Monika)
 
-### Kuschelmeeting Karlsruhe (offen für alle A-Gruppen-Angehörigen)
-
-> Kuschelmeeting 1 - 2 x pro Monat in Karlsruhe für alle A-Gruppen-Angehörigen und Ehemalige der 12-Schritte-Kliniken. 
-> Interessenten melden sich bzgl. näherer Infos bitte bei mir. 
-> Freue mich sehr über Nachricht. <umhanni@icloud.com>
-
 -----------------------------------------------------------------------------------
 
 ## Treffen von 12-Schritte Gruppen
