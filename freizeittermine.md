@@ -110,7 +110,7 @@ Toskana-Freizeit
 
 ![Herbstfreizeit Toskana Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@TO_1.jpg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@TO_2.jpg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@TO_3.jpg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@TO_4.jpg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@TO_5.png,ox-388,oy-0,ow-94,oh-68/white.jpg)
 
-[Toskana-Freizeit Herbst 2022](pdf/Toskana.pdf)
+[Toskana-Freizei](pdf/Toskana.pdf)
 
 Freizeit von Monika
 
