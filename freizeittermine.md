@@ -92,6 +92,18 @@ In Vorfreude, Erich und Gerburg
 
 -----------------------------------------------------------------------------------------------------
 
+22.-30.07.2022 
+
+Sommer-Freizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
+
+![Schaippach](/images/schaippach.jpeg)
+
+[Sommer 2022 in Schaippach](pdf/Schaippach Sommer 22.pdf)
+
+Freizeit von Monika
+
+-----------------------------------------------------------------------------------------------------
+
 17.09.2022 bis 24.09.2022
 
 Herbstfreizeit in Ruhpolding
