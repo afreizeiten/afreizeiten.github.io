@@ -92,7 +92,7 @@ In Vorfreude, Erich und Gerburg
 
 -----------------------------------------------------------------------------------------------------
 
-22.-30.07.2022 
+22.07.2022 - 30.07.2022
 
 Sommer-Freizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
 
