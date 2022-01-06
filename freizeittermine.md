@@ -4,20 +4,6 @@ title: Termine
 ---
 # Freizeittermine vom Selbsthilfe-Freizeitwerk e.V.
 
---------------------------------------------------------------------------------------------------
-
-26.12.2021 bis 05.01.2022
-
-Winter-Freizeit in Rothenburg ob der Tauber
-
-![Rothenburg op der Tauber](/images/rothenburg.png)
-
-[Winterfreizeit 2021.pdf](/pdf/Silvester-Rothenburg-2021.pdf)
-
-Achtung: Der Frühbucherrabatt für MBZ wird verlängert auf 08.11.2021. Es sind noch MBZ frei!
-
-Bitte füge auf dem Anmeldeformular selbstständig bei Bedarf das Auswahlkästchen „MBZ“ ein.
-
 ---------------------------------------------------------------------------------------------------
 
 25.05.2022 bis 29.05.2022 
