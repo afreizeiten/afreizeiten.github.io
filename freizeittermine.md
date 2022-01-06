@@ -42,18 +42,6 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
------------------------------------------------------------------------------------------------
-
-27.12.2021 bis 04.01.2022 
-
-Weihnachtsfreizeit in der Schaippachmühle
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Weihnachten 2021 in Schaippach](pdf/Weihnachtsfreizeit 2021.pdf)
-
-In Vorfreude, Erich und Gerburg
-
 ---------------------------------------------------------------------------------------------------
 
 19.02.2022 bis 26.02.2022
