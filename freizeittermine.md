@@ -78,6 +78,7 @@ Freizeit von Monika
 
 -----------------------------------------------------------------------------------------------------
 
+
 17.09.2022 bis 24.09.2022
 
 Herbstfreizeit in Ruhpolding
@@ -99,6 +100,19 @@ Toskana-Freizeit
 [Toskana-Freizeit](pdf/Toskana.pdf)
 
 Freizeit von Monika
+
+------------------------------------------------------------------------------------------------------
+
+13.10. - 22.10.2022
+
+Herbstfreizeit in der Bremer Schweiz
+
+![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
+
+Freizeit von Mechtild und Wolfgang (Landau)
+
+[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
+
 
 ------------------------------------------------------------------------------------------------------
 
