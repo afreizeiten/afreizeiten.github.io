@@ -58,7 +58,7 @@ leider nie so genau, wie die Bedingungen in einigen Wochen sind.
 Euch allen eine besinnliche Weihnachtszeit
 Mechtild aus Bremen
 
-[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit 2022_1 Bremen.pdf)
+[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen 2022.pdf)
 
 --------------------------------------------------------------------------------
 
