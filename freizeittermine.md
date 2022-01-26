@@ -58,11 +58,13 @@ Herzlichst von Gerti aus München
 
 14.04.2022 bis 23.04.2022 
 
-Osterfreizeit in der Schaippachmühle - Vorankündigung 
+Osterfreizeit in der Schaippachmühle 
 
 ![Schaippach](/images/schaippach.jpeg)
 
-In Vorfreude, Erich und Gerburg 
+[Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
+
+Freizeit von Erich und Gerburg 
 
 -----------------------------------------------------------------------------------------------------
 
