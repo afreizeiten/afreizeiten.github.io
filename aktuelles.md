@@ -13,6 +13,8 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 
 -----------------------------------------------------------------------------------------------------------------------------
 
+### Die 12-Schritte-Wanderung und die Sommerfreizeit in Grömitz sind jetzt online (siehe unter Freizeittermine)
+
 -----------------------------------------------------------------------------------------------------------------------------
 
 ## Gilt immer!
