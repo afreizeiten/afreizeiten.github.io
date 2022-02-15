@@ -45,18 +45,15 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
-Eine herzliche Einladung zur Minifreizeit in Blumenthal im Januar 2022
+Eine herzliche Einladung zur Minifreizeit in Blumenthal Ende April 2022
 
 Lebendiger Austausch, Kuscheln, menschliche Wärme…
 
-Wenn ihr kommen wollt, bitte erstmal nur anmelden. 
+Wenn ihr kommen wollt, bitte erstmal nur anmelden.
 
-Ich maile den Interessierten ca. eine Woche vorher, ob die Freizeit stattfinden kann.
-Zur Zeit wäre es möglich - wir haben in Bremen Warnstufe 2 - aber man weiß ja momentan 
-leider nie so genau, wie die Bedingungen in einigen Wochen sind.
+Ich maile den Interessierten ca. eine Woche vorher, ob die Freizeit stattfinden kann. Und bitte erst dann überweisen :-)
 
-Euch allen eine besinnliche Weihnachtszeit
-Mechtild aus Bremen
+Bis vielleicht bald, Mechtild und Traudi
 
 [Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen 2022.pdf)
 
