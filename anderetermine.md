@@ -45,6 +45,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
+
 Liebe Freunde des A-Programms,
 
 Raimund - Siegburg - und Roland -Leipzig - laden Euch zu einem verlängerten A-Wochenende nach Neustadt an der Weinstraße.
@@ -55,7 +56,7 @@ Im Anhang findet Ihr den Flyer mit allen wichtigen Angaben.
 
 Bei Einzel- und Doppelzimmerbuchungen bitte vorher - am besten - abends anrufen.
 
-Über die Internetseite    <www.e-und-a.net/neustadt-2022>
+Über die Internetseite    <http://www.e-und-a.net/neustadt-2022>
 
 könnt Ihr Euch über evt. Aktualisierungen informieren.
 
