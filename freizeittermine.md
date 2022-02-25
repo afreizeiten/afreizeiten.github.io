@@ -48,18 +48,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ---------------------------------------------------------------------------------------------------
 
-19.02.2022 bis 26.02.2022
-
-Skifreizeit in Ruhpolding
-
-![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
-
-[Skifreizeit_2022](pdf/Skifreizeit_2022_anonym.pdf)
-
-Herzlichst von Gerti aus München
-
-----------------------------------------------------------------------------------------------------
-
 14.04.2022 bis 23.04.2022 
 
 Osterfreizeit in der Schaippachmühle 
