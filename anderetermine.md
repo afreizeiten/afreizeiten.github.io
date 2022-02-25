@@ -45,6 +45,26 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
+Liebe Freunde des A-Programms,
+
+Raimund - Siegburg - und Roland -Leipzig - laden Euch zu einem verlängerten A-Wochenende nach Neustadt an der Weinstraße.
+
+Es beginnt am Donnerstagabend, den 24. März und endet am Sonntagnachmittag, den 27. März.
+
+Im Anhang findet Ihr den Flyer mit allen wichtigen Angaben.
+
+Bei Einzel- und Doppelzimmerbuchungen bitte vorher - am besten - abends anrufen.
+
+Über die Internetseite    <www.e-und-a.net/neustadt-2022>
+
+könnt Ihr Euch über evt. Aktualisierungen informieren.
+
+Es grüßen die RRs 
+
+[A-Wochenende Neustadt](pdf/Neustadt 2022 Flyer.pdf)
+
+--------------------------------------------------------------------------------------------------------------
+
 Eine herzliche Einladung zur Minifreizeit in Blumenthal Ende April 2022
 
 Lebendiger Austausch, Kuscheln, menschliche Wärme…
