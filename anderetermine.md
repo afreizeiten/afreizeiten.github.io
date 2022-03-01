@@ -45,24 +45,15 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
 
+Seine Mitte finden
 
-Liebe Freunde des A-Programms,
+Ein "ökumenisches" A-Wochenende für Freunde des A-Programms in
 
-Raimund - Siegburg - und Roland -Leipzig - laden Euch zu einem verlängerten A-Wochenende nach Neustadt an der Weinstraße.
+Neustadt an der Weinstraße vom
 
-Es beginnt am Donnerstagabend, den 24. März und endet am Sonntagnachmittag, den 27. März.
+24. bis 27. März 2022
 
-Im Anhang findet Ihr den Flyer mit allen wichtigen Angaben.
-
-Bei Einzel- und Doppelzimmerbuchungen bitte vorher - am besten - abends anrufen.
-
-Über die Internetseite    <http://www.e-und-a.net/neustadt-2022>
-
-könnt Ihr Euch über evt. Aktualisierungen informieren.
-
-Es grüßen die RRs 
-
-[A-Wochenende Neustadt](pdf/Neustadt 2022 Flyer.pdf)
+Flyer unter: <http://www.e-und-a.net/neustadt-2022>
 
 --------------------------------------------------------------------------------------------------------------
 
