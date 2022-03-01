@@ -51,7 +51,7 @@ Ein "ökumenisches" A-Wochenende für Freunde des A-Programms in
 
 Neustadt an der Weinstraße vom
 
-24. bis 27. März 2022
+'24. bis 27. März 2022
 
 Flyer unter: <http://www.e-und-a.net/neustadt-2022>
 
