@@ -16,7 +16,7 @@ Mitfahrgelegenheiten
 ## Möglichkeit zur Auswärtsübernachtung auf der Schaippachfreizeit an Ostern
 
 Die Bettenkapazität in der Mühle ist erschöpft. Es besteht aber die Möglichkeit
-im Ort eine Pension zu zweit oder dritt zu mieten, um so noch an der Freizeit teilnehmen zu können.
+im Ort eine Ferienwohnung zu zweit oder dritt zu mieten, um so noch an der Freizeit teilnehmen zu können.
 
 Bei Interesse bitte schnell bei Corina melden.
 
