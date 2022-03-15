@@ -18,7 +18,7 @@ Mitfahrgelegenheiten
 Die Bettenkapazität in der Mühle ist erschöpft. Es besteht aber die Möglichkeit
 im Ort eine Pension zu zweit oder dritt zu mieten, um so noch an der Freizeit teilnehmen zu können.
 
-Bei Interesse bitte bei Corina melden.
+Bei Interesse bitte schnell bei Corina melden.
 
 <corinaxs@gmx.de>
 
