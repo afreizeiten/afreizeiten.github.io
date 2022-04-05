@@ -42,19 +42,6 @@ Infos unter 01782090444 (Monika)
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
-
-## Treffen für Ehemalige aus 12-Schritte Kliniken / Minifreizeiten
-
-Seine Mitte finden
-
-Ein "ökumenisches" A-Wochenende für Freunde des A-Programms in
-
-Neustadt an der Weinstraße vom
-
-'24. bis 27. März 2022
-
-Flyer unter: <http://www.e-und-a.net/neustadt-2022>
-
 --------------------------------------------------------------------------------------------------------------
 
 Eine herzliche Einladung zur Minifreizeit in Blumenthal Ende April 2022
