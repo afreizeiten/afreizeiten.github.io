@@ -62,7 +62,7 @@ Freizeit von Erich und Gerburg
 
 11.07.2022 bis 21.07.2022
 
-32. Bernrieder Schritte-Seminar
+'32. Bernrieder Schritte-Seminar
 
 [32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
 
