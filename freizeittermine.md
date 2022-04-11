@@ -60,6 +60,16 @@ Freizeit von Erich und Gerburg
 
 -----------------------------------------------------------------------------------------------------
 
+11.07.2022 bis 21.07.2022
+
+32. Bernrieder Schritte-Seminar
+
+[32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
+
+Freizeit von Mati und Elisabeth
+
+-----------------------------------------------------------------------------------------------------
+
 22.07.2022 - 30.07.2022
 
 Sommer-Freizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
