@@ -66,7 +66,7 @@ Freizeit von Erich und Gerburg
 
 [32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
 
-Freizeit von Mati und Elisabeth
+(Organisation: Mati und Elisabeth)
 
 -----------------------------------------------------------------------------------------------------
 
