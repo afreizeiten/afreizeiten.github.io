@@ -6,6 +6,8 @@ title: Termine
 
 ---------------------------------------------------------------------------------------------------
 
+## Storniert!!!
+
 25.05.2022 bis 29.05.2022 
 
 12 Schritte Wanderung in Possenhofen am Starnberger See
