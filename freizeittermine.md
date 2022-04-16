@@ -84,18 +84,27 @@ Freizeit von Monika
 
 -----------------------------------------------------------------------------------------------------
 
-
 17.09.2022 bis 24.09.2022
 
 Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-[Herbstfreizeit_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
+[Herbstfreizeit_2022](pdf/A-Freizeit September 2022.pdf)
 
 Herzlichst von Gerti aus München
 
 ------------------------------------------------------------------------------------------------------
+
+17.09.2022 bis 24.09.2022
+
+Herbstfreizeit in Bleichnau/Allgäu
+
+[Herbstfreizeit Bleichnau_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
+
+Freizeit von Wolfgang
+
+---------------------------------------------------------------------------------------------------------
 
 17.09.2022 bis 01.10.2022
 
