@@ -90,9 +90,9 @@ Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-[Herbstfreizeit_2022](pdf/A-Freizeit September 2022.pdf)
+[Herbstfreizeit_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
 
-Herzlichst von Gerti aus München
+Herzlichst von Gerti aus München 
 
 ------------------------------------------------------------------------------------------------------
 
@@ -100,7 +100,7 @@ Herzlichst von Gerti aus München
 
 Herbstfreizeit in Bleichnau/Allgäu
 
-[Herbstfreizeit Bleichnau_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
+[Herbstfreizeit Bleichnau_2022](pdf/A-Freizeit September 2022.pdf)
 
 Freizeit von Wolfgang
 
