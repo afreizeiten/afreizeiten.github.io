@@ -74,7 +74,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeiten von Erich
 
-Weihnachten in der Schaippachmühle
+### Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
@@ -90,7 +90,9 @@ Weihnachten in der Schaippachmühle
 
 [Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten_2016_in_Schaippach.pdf)
 
-Ostern in der Schaippachmühle
+### Ostern in der Schaippachmühle
+
+[Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
 
 [Ostern 2019 in Schaippach.pdf](/pdf/Ostern 2019 in Schaippach.pdf)
 
