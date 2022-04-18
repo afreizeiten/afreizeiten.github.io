@@ -82,25 +82,25 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 [Weihnachten 2021 in Schaippach -ausgefallen-](pdf/Weihnachtsfreizeit 2021.pdf)
 
-[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit 2019.pdf)
+[Weihnachten 2019 in Schaippach](/pdf/Weihnachtsfreizeit 2019.pdf)
 
-[Weihnachten 2018 in Schaippach.pdf](/pdf/Weihnachten 2018 in Schaippach.pdf)
+[Weihnachten 2018 in Schaippach](/pdf/Weihnachten 2018 in Schaippach.pdf)
 
-[Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
+[Weihnachten 2017 in Schaippach](/pdf/Weihnachten in Schaippach 2017.pdf)
 
-[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten_2016_in_Schaippach.pdf)
+[Weihnachten 2016 in Schaippach](/pdf/Weihnachten_2016_in_Schaippach.pdf)
 
 #### Ostern in der Schaippachmühle
 
 [Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
 
-[Ostern 2019 in Schaippach.pdf](/pdf/Ostern 2019 in Schaippach.pdf)
+[Ostern 2019 in Schaippach](/pdf/Ostern 2019 in Schaippach.pdf)
 
-[Ostern 2018 in Schaippach.pdf](/pdf/Ostern in Schaippach 2018.pdf)
+[Ostern 2018 in Schaippach](/pdf/Ostern in Schaippach 2018.pdf)
 
-[Ostern 2017 in Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
+[Ostern 2017 in Schaippach](/pdf/Ostern_2017_in_Schaippach.pdf)
 
-[Ostern 2016 in Schaippach.pdf](/pdf/ErichOsterfreizeit2016.pdf)
+[Ostern 2016 in Schaippach](/pdf/ErichOsterfreizeit2016.pdf)
 
 ----------------------------------------------------------------------------
 
