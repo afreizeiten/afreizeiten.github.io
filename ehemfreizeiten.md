@@ -74,7 +74,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeiten von Erich
 
-### Weihnachten in der Schaippachmühle
+#### Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
