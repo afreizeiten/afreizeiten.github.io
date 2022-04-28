@@ -48,18 +48,6 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
----------------------------------------------------------------------------------------------------
-
-14.04.2022 bis 23.04.2022 
-
-Osterfreizeit in der Schaippachmühle 
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
-
-Freizeit von Erich und Gerburg 
-
 -----------------------------------------------------------------------------------------------------
 
 11.07.2022 bis 21.07.2022
