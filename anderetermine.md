@@ -44,17 +44,13 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 --------------------------------------------------------------------------------------------------------------
 
-Eine herzliche Einladung zur Minifreizeit in Blumenthal Ende April 2022
+Eine herzliche Einladung zur Minifreizeit in Blumenthal vom 2. bis zum 4. September 2022
 
 Lebendiger Austausch, Kuscheln, menschliche Wärme…
 
-Wenn ihr kommen wollt, bitte erstmal nur anmelden.
+Wir freuen uns auf euch, Mechtild und Traudi
 
-Ich maile den Interessierten ca. eine Woche vorher, ob die Freizeit stattfinden kann. Und bitte erst dann überweisen :-)
-
-Bis vielleicht bald, Mechtild und Traudi
-
-[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen 2022.pdf)
+[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen.pdf)
 
 --------------------------------------------------------------------------------
 
