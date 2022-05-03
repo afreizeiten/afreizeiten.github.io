@@ -50,7 +50,7 @@ Lebendiger Austausch, Kuscheln, menschliche Wärme…
 
 Wir freuen uns auf euch, Mechtild und Traudi
 
-[Mini-Freizeit Bremen.pdf](pdf/Einladung Mini-Freizeit Bremen.pdf)
+[Mini-Freizeit Bremen.pdf](pdf/Mini-Freizeit Bremen.pdf)
 
 --------------------------------------------------------------------------------
 
