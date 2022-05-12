@@ -72,6 +72,16 @@ Freizeit von Monika
 
 -----------------------------------------------------------------------------------------------------
 
+'01.08.2022 - 11.08.2022
+
+Sommerfreizeit in Allmannsried
+
+[Sommer 2022 in Allmannsried](pdf/Allmannsried 2022.pdf)
+
+Freizeit von Silke und Dietrich
+
+-----------------------------------------------------------------------------------------------------
+
 17.09.2022 bis 24.09.2022
 
 Herbstfreizeit in Ruhpolding
