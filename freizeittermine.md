@@ -74,6 +74,8 @@ Freizeit von Monika
 
 '01.08.2022 - 11.08.2022
 
+![allmannsried](/images/allmansried.jpeg)
+
 Sommerfreizeit in Allmannsried
 
 [Sommer 2022 in Allmannsried](pdf/Allmannsried 2022.pdf)
