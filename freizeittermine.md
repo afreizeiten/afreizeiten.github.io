@@ -78,7 +78,7 @@ Freizeit von Monika
 
 Sommerfreizeit in Allmannsried
 
-[Sommer 2022 in Allmannsried](pdf/Allmannsried 2022.pdf)
+[Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
 
 Freizeit von Silke und Dietrich
 
