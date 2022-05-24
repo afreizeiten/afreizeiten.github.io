@@ -6,20 +6,6 @@ title: Termine
 
 ---------------------------------------------------------------------------------------------------
 
-25.05.2022 bis 29.05.2022 
-
-### Die 12-Schritte Wanderung wurde storniert!!!
-
-12 Schritte Wanderung in Possenhofen am Starnberger See
-
-![12 schritte Wanderung Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@W_5.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@W_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@W_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@W_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@W_1.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
-
-[12-Schritte Wanderung](pdf/2022 12-Schr-Wa-Possenhofen Endfassung.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
-
----------------------------------------------------------------------------------------------------
-
 04.06.2022 bis 14.06.2022 
 
 Sommerfreizeit in Grömitz
