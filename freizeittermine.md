@@ -80,16 +80,6 @@ Herbstfreizeit in Ruhpolding
 
 Herzlichst von Gerti aus München 
 
-------------------------------------------------------------------------------------------------------
-
-17.09.2022 bis 24.09.2022
-
-Herbstfreizeit in Bleichnau/Allgäu
-
-[Herbstfreizeit Bleichnau_2022](pdf/A-Freizeit September 2022 .pdf)
-
-Freizeit von Wolfgang
-
 ---------------------------------------------------------------------------------------------------------
 
 17.09.2022 bis 01.10.2022
