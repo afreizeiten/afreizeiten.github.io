@@ -44,6 +44,9 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 --------------------------------------------------------------------------------------------------------------
 
+
+## Wochenende in Blumenthal mit Komitee für alle A-Freunde und -Freundinnen
+
 Eine herzliche Einladung zur Minifreizeit in Blumenthal vom 2. bis zum 4. September 2022
 
 Lebendiger Austausch, Kuscheln, menschliche Wärme…
