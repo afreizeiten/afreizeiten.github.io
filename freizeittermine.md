@@ -4,26 +4,6 @@ title: Termine
 ---
 # Freizeittermine vom Selbsthilfe-Freizeitwerk e.V.
 
----------------------------------------------------------------------------------------------------
-
-25.05.2022 bis 29.05.2022 
-
-12 Schritte Wanderung in Possenhofen am Starnberger See - Vorankündigung
-
-![12 schritte Wanderung Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@W_5.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@W_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@W_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@W_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@W_1.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
-
----------------------------------------------------------------------------------------------------
-
-04.06.2022 bis 14.06.2022 
-
-Sommerfreizeit in Grömitz - Vorankündigung 
-
-![Sommerfreizeit Grömitz Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@GR_1.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@GR_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@GR_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@GR_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@GR_5.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
-
 --------------------------------------------------------------------------------------------------
 
 12.06.2023 bis 24.06.2023 
@@ -42,29 +22,15 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
----------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------
 
-19.02.2022 bis 26.02.2022
+11.07.2022 bis 21.07.2022
 
-Skifreizeit in Ruhpolding
+'32. Bernrieder Schritte-Seminar
 
-![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
+[32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
 
-[Skifreizeit_2022](pdf/Skifreizeit_2022_anonym.pdf)
-
-Herzlichst von Gerti aus München
-
-----------------------------------------------------------------------------------------------------
-
-14.04.2022 bis 23.04.2022 
-
-Osterfreizeit in der Schaippachmühle 
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
-
-Freizeit von Erich und Gerburg 
+(Organisation: Mati und Elisabeth)
 
 -----------------------------------------------------------------------------------------------------
 
@@ -80,6 +46,17 @@ Freizeit von Monika
 
 -----------------------------------------------------------------------------------------------------
 
+'01.08.2022 - 11.08.2022
+
+![allmannsried](/images/allmansried.jpeg)
+
+Sommerfreizeit in Allmannsried
+
+[Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
+
+Freizeit von Silke und Dietrich
+
+-----------------------------------------------------------------------------------------------------
 
 17.09.2022 bis 24.09.2022
 
@@ -89,9 +66,9 @@ Herbstfreizeit in Ruhpolding
 
 [Herbstfreizeit_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
 
-Herzlichst von Gerti aus München
+Herzlichst von Gerti aus München 
 
-------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------
 
 17.09.2022 bis 01.10.2022
 

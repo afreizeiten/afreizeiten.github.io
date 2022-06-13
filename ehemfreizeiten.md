@@ -12,7 +12,7 @@ Virtuelle Weihnachtsfreizeit
 
 ![virtuelle Weihnachtsfreizeit](/images/weihnachtfreizeit.png)
 
-[Virtuelle Winterfreizeit 2020](pdf/Endfassung Virtuelle Freizeit.pdf)
+[Virtuelle Winterfreizeit 2020](pdf/Endfassung-Virtuelle-Freizeit.pdf)
 
 Winterfreizeit in Rothenburg ob der Tauber 
 
@@ -33,6 +33,11 @@ Winterfreizeiten in Blankenheim
 [Blankenheim 2016.pdf](/pdf/2016_Blankenheim.pdf)
 
 ----------------------------------------------------------------------------
+Sommerfreizeit Grömitz 2022
+
+![Sommerfreizeit Grömitz Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@GR_1.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@GR_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@GR_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@GR_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@GR_5.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
+
+[Sommerfreizeit Grömitz](pdf/2022 Grömitz Endfassung.pdf)
 
 Sommerfreizeit auf Usedom
 
@@ -74,7 +79,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeiten von Erich
 
-Weihnachten in der Schaippachmühle
+#### Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
@@ -82,23 +87,25 @@ Weihnachten in der Schaippachmühle
 
 [Weihnachten 2021 in Schaippach -ausgefallen-](pdf/Weihnachtsfreizeit 2021.pdf)
 
-[Weihnachten 2019 in Schaippach.pdf](/pdf/Weihnachtsfreizeit 2019.pdf)
+[Weihnachten 2019 in Schaippach](/pdf/Weihnachtsfreizeit 2019.pdf)
 
-[Weihnachten 2018 in Schaippach.pdf](/pdf/Weihnachten 2018 in Schaippach.pdf)
+[Weihnachten 2018 in Schaippach](/pdf/Weihnachten 2018 in Schaippach.pdf)
 
-[Weihnachten 2017 in Schaippach.pdf](/pdf/Weihnachten in Schaippach 2017.pdf)
+[Weihnachten 2017 in Schaippach](/pdf/Weihnachten in Schaippach 2017.pdf)
 
-[Weihnachten 2016 in Schaippach.pdf](/pdf/Weihnachten_2016_in_Schaippach.pdf)
+[Weihnachten 2016 in Schaippach](/pdf/Weihnachten_2016_in_Schaippach.pdf)
 
-Ostern in der Schaippachmühle
+#### Ostern in der Schaippachmühle
 
-[Ostern 2019 in Schaippach.pdf](/pdf/Ostern 2019 in Schaippach.pdf)
+[Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
 
-[Ostern 2018 in Schaippach.pdf](/pdf/Ostern in Schaippach 2018.pdf)
+[Ostern 2019 in Schaippach](/pdf/Ostern 2019 in Schaippach.pdf)
 
-[Ostern 2017 in Schaippach.pdf](/pdf/Ostern_2017_in_Schaippach.pdf)
+[Ostern 2018 in Schaippach](/pdf/Ostern in Schaippach 2018.pdf)
 
-[Ostern 2016 in Schaippach.pdf](/pdf/ErichOsterfreizeit2016.pdf)
+[Ostern 2017 in Schaippach](/pdf/Ostern_2017_in_Schaippach.pdf)
+
+[Ostern 2016 in Schaippach](/pdf/ErichOsterfreizeit2016.pdf)
 
 ----------------------------------------------------------------------------
 
@@ -178,6 +185,8 @@ Sommerfreizeiten in Allmannsried
 ![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
 
 [Herbstfreizeit Ruhpolding 2021.pdf](/pdf/Herbstfreizeit_2021_Anonym.pdf)
+
+[Skifreizeit_2022 Ruhpolding](pdf/Skifreizeit_2022_anonym.pdf)
 
 [Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
 
