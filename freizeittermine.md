@@ -4,18 +4,6 @@ title: Termine
 ---
 # Freizeittermine vom Selbsthilfe-Freizeitwerk e.V.
 
----------------------------------------------------------------------------------------------------
-
-04.06.2022 bis 14.06.2022 
-
-Sommerfreizeit in Grömitz
-
-![Sommerfreizeit Grömitz Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@GR_1.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@GR_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@GR_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@GR_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@GR_5.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
-
-[Sommerfreizeit Grömitz](pdf/2022 Grömitz Endfassung.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
-
 --------------------------------------------------------------------------------------------------
 
 12.06.2023 bis 24.06.2023 
