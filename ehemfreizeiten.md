@@ -12,7 +12,7 @@ Virtuelle Weihnachtsfreizeit
 
 ![virtuelle Weihnachtsfreizeit](/images/weihnachtfreizeit.png)
 
-[Virtuelle Winterfreizeit 2020](pdf/Endfassung Virtuelle Freizeit.pdf)
+[Virtuelle Winterfreizeit 2020](pdf/Endfassung-Virtuelle-Freizeit.pdf)
 
 Winterfreizeit in Rothenburg ob der Tauber 
 
