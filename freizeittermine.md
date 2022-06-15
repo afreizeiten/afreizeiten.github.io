@@ -92,16 +92,17 @@ Freizeit von Mechtild und Wolfgang (Landau)
 
 [Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
 
-
 ------------------------------------------------------------------------------------------------------
 
 27.12.2022 - 04.01.2023 - Vorankündigung
+
+![Schaippach](/images/schaippach.jpeg)
 
 Weihnachten 2022 in der Schaippachmühle
 
 Einladung folgt!
 
-Freizeit von Erich
+Freizeit von Erich und Gerburg
 
 ------------------------------------------------------------------------------------------------------
 
