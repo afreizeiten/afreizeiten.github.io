@@ -95,6 +95,16 @@ Freizeit von Mechtild und Wolfgang (Landau)
 
 ------------------------------------------------------------------------------------------------------
 
+27.12.2022 - 04.01.2023 - Vorankündigung
+
+Weihnachten 2022 in der Schaippachmühle
+
+Einladung folgt!
+
+Freizeit von Erich
+
+------------------------------------------------------------------------------------------------------
+
 27.08.2023 bis 08.09.2023 - Vorankündigung 
 
 Sommerfreizeit in Ruhpolding
