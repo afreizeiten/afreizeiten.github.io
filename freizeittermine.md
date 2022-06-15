@@ -106,6 +106,18 @@ Freizeit von Erich und Gerburg
 
 ------------------------------------------------------------------------------------------------------
 
+06.04.2023 - 15.04.2023 - Vorankündigung
+
+![Schaippach](/images/schaippach.jpeg)
+
+Ostern 2023 in der Schaippachmühle
+
+Einladung folgt!
+
+Freizeit von Erich und Gerburg
+
+------------------------------------------------------------------------------------------------------
+
 27.08.2023 bis 08.09.2023 - Vorankündigung 
 
 Sommerfreizeit in Ruhpolding
