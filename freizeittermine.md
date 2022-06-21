@@ -118,6 +118,16 @@ Freizeit von Erich und Gerburg
 
 ------------------------------------------------------------------------------------------------------
 
+21.08.2023 - 01.09.2023 - Vorankündigung
+
+![allmannsried](/images/allmansried.jpeg)
+
+Sommerfreizeit in Allmannsried
+
+Freizeit von Silke und Dietrich
+
+------------------------------------------------------------------------------------------------------
+
 27.08.2023 bis 08.09.2023 - Vorankündigung 
 
 Sommerfreizeit in Ruhpolding
