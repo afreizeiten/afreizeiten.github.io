@@ -118,6 +118,14 @@ Freizeit von Erich und Gerburg
 
 ------------------------------------------------------------------------------------------------------
 
+17.07.2023 - 28.07.2023 - Vorankündigung
+
+![allmannsried](/images/allmansried.jpeg)
+
+Sommerfreizeit in Allmannsried von Wolfgang
+
+------------------------------------------------------------------------------------------------------
+
 21.08.2023 - 01.09.2023 - Vorankündigung
 
 ![allmannsried](/images/allmansried.jpeg)
