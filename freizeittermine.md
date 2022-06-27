@@ -108,9 +108,11 @@ Freizeit von Erich und Gerburg
 
 19.02.2023 - 26.02.2023 - Vorankündigung
 
+Winterfreizeit in Ruhpolding
+
 ![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
 
-Winterfreizeit in Ruhpolding von Gerti und Wolfgang (Landau)
+ Freizeit von Gerti und Wolfgang (Landau)
 
 ------------------------------------------------------------------------------------------------------
 
@@ -144,12 +146,12 @@ Freizeit von Silke und Dietrich
 
 ------------------------------------------------------------------------------------------------------
 
-27.08.2023 bis 08.09.2023 - Vorankündigung 
+'01.09.2023 - 08.09.2023 - Vorankündigung 
 
-Sommerfreizeit in Ruhpolding
+Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-Herzliche Einladung von Gerti 
+Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
