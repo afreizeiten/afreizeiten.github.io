@@ -104,6 +104,14 @@ Einladung folgt!
 
 Freizeit von Erich und Gerburg
 
+-----------------------------------------------------------------------------------------------------
+
+19.02.2023 - 26.02.2023 - Vorankündigung
+
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
+
+Winterfreizeit in Ruhpolding von Gerti und Wolfgang (Landau)
+
 ------------------------------------------------------------------------------------------------------
 
 06.04.2023 - 15.04.2023 - Vorankündigung
