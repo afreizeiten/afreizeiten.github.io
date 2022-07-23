@@ -122,6 +122,8 @@ Freizeit von Erich und Gerburg
 
 ![allmannsried](/images/allmansried.jpeg)
 
+[allmansried_2023](pdf/Dokument 44 (1).pdf)
+
 Sommerfreizeit in Allmannsried von Wolfgang
 
 ------------------------------------------------------------------------------------------------------
