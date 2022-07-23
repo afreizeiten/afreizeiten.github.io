@@ -24,16 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-11.07.2022 bis 21.07.2022
-
-'32. Bernrieder Schritte-Seminar
-
-[32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
-
-(Organisation: Mati und Elisabeth)
-
------------------------------------------------------------------------------------------------------
-
 22.07.2022 - 30.07.2022
 
 Sommer-Freizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
