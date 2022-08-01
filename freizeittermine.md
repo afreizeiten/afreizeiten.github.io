@@ -108,7 +108,7 @@ Freizeit von Erich und Gerburg
 
 26.06.2023 - 05.07.2023 - Vorankündigung
 
-Sommer-Freizeit in der Schaippach-Mühle
+Sommerfreizeit in der Schaippach-Mühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
