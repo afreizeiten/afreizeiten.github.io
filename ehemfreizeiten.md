@@ -208,7 +208,9 @@ Sommerfreizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
 
 ----------------------------------------------------------------------------
 
-## Freizeit von Elisabeth, Verena und Mati
+## Freizeit von Elisabeth und Mati
+
+[32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
 
 [31. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried21-21.04.27-1Flyer.pdf)
 
