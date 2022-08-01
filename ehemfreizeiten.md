@@ -198,6 +198,16 @@ Sommerfreizeiten in Allmannsried
 
 ----------------------------------------------------------------------------
 
+## Freizeit von Monika
+
+Sommerfreizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
+
+![Schaippach](/images/schaippach.jpeg)
+
+[Sommer 2022 in Schaippach](pdf/Schaippach Sommer 22.pdf)
+
+----------------------------------------------------------------------------
+
 ## Freizeit von Elisabeth, Verena und Mati
 
 [31. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried21-21.04.27-1Flyer.pdf)
