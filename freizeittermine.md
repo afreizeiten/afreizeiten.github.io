@@ -24,18 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-22.07.2022 - 30.07.2022
-
-Sommer-Freizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Sommer 2022 in Schaippach](pdf/Schaippach Sommer 22.pdf)
-
-Freizeit von Monika
-
------------------------------------------------------------------------------------------------------
-
 '01.08.2022 - 11.08.2022
 
 ![allmannsried](/images/allmansried.jpeg)
