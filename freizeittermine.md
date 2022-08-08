@@ -6,11 +6,11 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-26.12.2022 -05.01.2023
+26.12.2022 - 05.01.2023
 
 Winterfreizeit in Rothenburg ob der Tauber - Vorankündigung 
 
-
+![Rothenburg op der Tauber](/images/rothenburg.png)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
