@@ -6,7 +6,17 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-12.06.2023 bis 24.06.2023 
+26.12.2022 -05.01.2023
+
+Winterfreizeit in Rothenburg ob der Tauber - Vorankündigung 
+
+
+
+Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
+
+--------------------------------------------------------------------------------------------------
+
+12.06.2023 - 24.06.2023 
 
 Sommerfreizeit in Grömitz - Vorankündigung 
 
