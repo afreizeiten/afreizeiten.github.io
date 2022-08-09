@@ -14,6 +14,8 @@ Winterfreizeit in Rothenburg ob der Tauber - Vorankündigung
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
+## Es werden noch Teamer (m/w/d) gesucht!!
+
 --------------------------------------------------------------------------------------------------
 
 12.06.2023 - 24.06.2023 
