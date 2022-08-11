@@ -134,7 +134,7 @@ Detailinformationen erfolgen demnächst!
 
 Sommerfreizeit in Allmannsried von Wolfgang
 
-[Sommer 2023 in Allmannsried](pdf/A-Freizeit Allmannsried 2023 (1))
+[Sommer 2023 in Allmannsried](pdf/A-Freizeit Allmannsried 2023 (1).pdf)
 
 ------------------------------------------------------------------------------------------------------
 
