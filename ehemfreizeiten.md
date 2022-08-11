@@ -147,6 +147,12 @@ Freizeiten in Westfriesland
 
 ----------------------------------------------------------------------------
 
+## Freizeit von Silke und Dietrich
+
+[Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
+
+-----------------------------------------------------------------------------
+
 ## Freizeiten von Wolfgang
 
 ![allmannsried](/images/allmansried.jpeg)
