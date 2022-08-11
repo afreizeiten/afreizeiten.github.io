@@ -128,11 +128,13 @@ Detailinformationen erfolgen demnächst!
 
 -----------------------------------------------------------------------------------------------------
 
-17.07.2023 - 28.07.2023 - Vorankündigung
+17.07.2023 - 28.07.2023 
 
 ![allmannsried](/images/allmansried.jpeg)
 
 Sommerfreizeit in Allmannsried von Wolfgang
+
+[Sommer 2023 in Allmannsried](pdf/A-Freizeit Allmannsried 2023 (1))
 
 ------------------------------------------------------------------------------------------------------
 
