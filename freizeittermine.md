@@ -36,18 +36,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-'01.08.2022 - 11.08.2022
-
-![allmannsried](/images/allmansried.jpeg)
-
-Sommerfreizeit in Allmannsried
-
-[Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
-
-Freizeit von Silke und Dietrich
-
------------------------------------------------------------------------------------------------------
-
 17.09.2022 bis 24.09.2022
 
 Herbstfreizeit in Ruhpolding
