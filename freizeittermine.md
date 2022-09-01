@@ -128,13 +128,13 @@ Sommerfreizeit in Allmannsried von Wolfgang
 
 ------------------------------------------------------------------------------------------------------
 
-21.08.2023 - 01.09.2023 - Vorankündigung
+21.08.2023 - 01.09.2023 
 
 ![allmannsried](/images/allmansried.jpeg)
 
-Sommerfreizeit in Allmannsried
+Sommerfreizeit in Allmannsried von Silke und Dietrich
 
-Freizeit von Silke und Dietrich
+[Sommer 2023 in Allmannsried](pdf/Ausschreibung Allmannsried 2023.pdf)
 
 ------------------------------------------------------------------------------------------------------
 
