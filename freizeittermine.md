@@ -134,7 +134,7 @@ Sommerfreizeit in Allmannsried von Wolfgang
 
 Sommerfreizeit in Allmannsried von Silke und Dietrich
 
-[Sommer 2023 in Allmannsried](pdf/Ausschreibung Allmannsried 2023 Silke und DietrichVx.pdf)
+[Sommer 2023 in Allmannsried](pdf/Ausschreibung Allmannsried 2023 Silke und DietrichV0609.pdf)
 
 ------------------------------------------------------------------------------------------------------
 
