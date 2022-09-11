@@ -26,6 +26,8 @@ Sommerfreizeit in Grömitz - Vorankündigung
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
+## Es werden noch Teamer (m/w/d) gesucht!!
+
 ---------------------------------------------------------------------------------------------------
 
 # Freizeittermine privater Anbieter
