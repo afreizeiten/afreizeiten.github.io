@@ -44,9 +44,11 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 --------------------------------------------------------------------------------------------------------------
 
-## Besinnungswochenende in Bleichnau am schönen Bodensee vom 6.10. bis 09.10.2022 (von Wolfgang)
+## Besinnungswochenende in Bleichnau am schönen Bodensee vom 6.10. bis 09.10.2022 
 
-[Besinnungswochenende.pdf](pdf/Besinnungswochenende 2022 Wolfgang J)
+[Besinnungswochenende.pdf](pdf/Besinnungswochenende 2022 Wolfgang.pdf)
+
+Angebot von Wolfgang
 
 --------------------------------------------------------------------------------------------------------------
 
