@@ -38,18 +38,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-17.09.2022 bis 24.09.2022
-
-Herbstfreizeit in Ruhpolding
-
-![ruhpolding](/images/bildleiste_2021.png)
-
-[Herbstfreizeit_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
-
-Herzlichst von Gerti aus München 
-
----------------------------------------------------------------------------------------------------------
-
 17.09.2022 bis 01.10.2022
 
 Toskana-Freizeit
