@@ -198,6 +198,8 @@ Sommerfreizeiten in Allmannsried
 
 [Skifreizeit 2020 Ruhpolding.pdf](/pdf/Skifreizeit_2020.pdf)
 
+[Herbstfreizeit_2022](pdf/Herbstfreizeit_2022_anonym.pdf)
+
 ----------------------------------------------------------------------------
 
 ## Freizeit von Gerhard
