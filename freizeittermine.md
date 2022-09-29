@@ -62,13 +62,15 @@ Freizeit von Mechtild und Wolfgang (Landau)
 
 ------------------------------------------------------------------------------------------------------
 
-27.12.2022 - 04.01.2023 - Vorankündigung
+27.12.2022 - 04.01.2023
 
 ![Schaippach](/images/schaippach.jpeg)
 
 Weihnachten 2022 in der Schaippachmühle
 
-Einladung folgt!
+[Weihnachten in Schaippach 2022](pdf/Einladung_Weihnachtsfreizeit_Schaippach_2022.pdf)
+
+[Begleitbrief von Erich](pdf/Begleitbrief_Weihnachtsfreizeit_Schaippach_2022.pdf)
 
 Freizeit von Erich und Gerburg
 
