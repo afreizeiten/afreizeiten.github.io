@@ -76,6 +76,18 @@ Winterfreizeit in Ruhpolding
 
 ------------------------------------------------------------------------------------------------------
 
+03.04.2023 – 10.04.2023
+
+Einladung zur Osterfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Osterfreizeit in Allmannsried](pdf/OsterfreizeitAllmannsried2023-Ausschreibung.pdf)
+
+Freizeit von Silke und Dietrich
+
+------------------------------------------------------------------------------------------------------
+
 06.04.2023 - 15.04.2023 - Vorankündigung
 
 ![Schaippach](/images/schaippach.jpeg)
