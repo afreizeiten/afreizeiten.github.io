@@ -82,7 +82,7 @@ Einladung zur Osterfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Osterfreizeit in Allmannsried](pdf/Osterfreizeit Allmannsried 2023-Ausschreibung.pdf)
+[Osterfreizeit in Allmannsried](pdf/Osterfreizeit Allmannsried 2023-Ausschreibung .pdf)
 
 Freizeit von Silke und Dietrich
 
