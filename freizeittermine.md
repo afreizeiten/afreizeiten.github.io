@@ -14,7 +14,7 @@ Winterfreizeit in Rothenburg ob der Tauber - Vorankündigung
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
-## Die Ausschreibung für Rothenburg geht Ende September/ Anfang Oktober raus. 
+## Die Ausschreibung für Rothenburg geht erst Mitte Oktober raus.
 
 --------------------------------------------------------------------------------------------------
 
