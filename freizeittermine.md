@@ -60,8 +60,6 @@ Weihnachten 2022 in Schaippach
 
 [Begleitbrief von Erich](pdf/Begleitbrief_Weihnachtsfreizeit_Schaippach_2022.pdf)
 
-[Stellungnahme zu Erichs Begleitbrief](pdf/Stellungnahme zu Erichs Begleitbrief.pdf)
-
 Freizeit von Erich und Gerburg
 
 -----------------------------------------------------------------------------------------------------
