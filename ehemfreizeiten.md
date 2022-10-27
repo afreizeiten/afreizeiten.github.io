@@ -111,6 +111,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeiten von Mechtild
 
+[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
+
 Osterfreizeiten in Bremen
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
