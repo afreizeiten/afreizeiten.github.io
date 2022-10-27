@@ -36,18 +36,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-13.10. - 22.10.2022
-
-Herbstfreizeit in der Bremer Schweiz
-
-![Freizeit Bremen im Herbst](/images/Leiste_Herbst_Bremen.jpg)
-
-Freizeit von Mechtild und Wolfgang (Landau)
-
-[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
-
-------------------------------------------------------------------------------------------------------
-
 27.12.2022 - 04.01.2023
 
 Weihnachten 2022 in Schaippach
