@@ -120,7 +120,7 @@ Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-[Herbstfreizeit_2022 Ruhpolding](pdf/Herbstfreizeit_2023.pdf)
+[Herbstfreizeit_2023 Ruhpolding](pdf/Herbstfreizeit_2023.pdf)
 
 Freizeit von Gerti und Wolfgang (Landau)
 
