@@ -125,3 +125,27 @@ Herbstfreizeit in Ruhpolding
 Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
+
+04.02.2024 - 11.02.2024 - Vorankündigung
+
+Winterfreizeit in Ruhpolding 
+
+![ruhpolding](/images/bildleiste_2021.png)
+
+Freizeit von Gerti
+
+--------------------------------------------------------------------------------------------------------
+
+16.09.2024 - 27.09.2024 - Vorankündigung
+
+Herbstfreizeit in Ruhpolding 
+
+![ruhpolding](/images/bildleiste_2021.png)
+
+Freizeit von Gerti
+
+-------------------------------------------------------------------------------------------------------
+
+
+
+
