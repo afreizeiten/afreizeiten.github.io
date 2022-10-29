@@ -44,14 +44,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 --------------------------------------------------------------------------------------------------------------
 
-## Besinnungswochenende in Bleichnau am schönen Bodensee vom 6.10. bis 09.10.2022 
-
-[Besinnungswochenende.pdf](pdf/Besinnungswochenende 2022 Wolfgang.pdf)
-
-Angebot von Wolfgang
-
---------------------------------------------------------------------------------------------------------------
-
 ## Wochenende in Blumenthal mit Komitee für alle A-Freunde und -Freundinnen
 
 Eine herzliche Einladung zur Minifreizeit in Blumenthal vom 16. bis zum 18. Dezember 2022
