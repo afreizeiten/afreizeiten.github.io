@@ -114,11 +114,13 @@ Sommerfreizeit in Allmannsried von Silke und Dietrich
 
 ------------------------------------------------------------------------------------------------------
 
-'01.09.2023 - 08.09.2023 - Vorankündigung 
+'01.09.2023 - 08.09.2023  
 
 Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
+
+[Herbstfreizeit in Ruhpolding mit Gerti](Herbstfreizeit_2023.pdf)
 
 Freizeit von Gerti und Wolfgang (Landau)
 
