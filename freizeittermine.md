@@ -132,7 +132,7 @@ Winterfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-Freizeit von Gerti
+Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
@@ -142,7 +142,7 @@ Herbstfreizeit in Ruhpolding
 
 ![ruhpolding](/images/bildleiste_2021.png)
 
-Freizeit von Gerti
+Freizeit von Gerti und Wolfgang (Landau)
 
 -------------------------------------------------------------------------------------------------------
 
