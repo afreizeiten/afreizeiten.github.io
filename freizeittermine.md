@@ -130,7 +130,7 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 Winterfreizeit in Ruhpolding 
 
-![ruhpolding](/images/bildleiste_2021.png)
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
 
 Freizeit von Gerti und Wolfgang (Landau)
 
