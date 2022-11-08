@@ -11,6 +11,7 @@ title: Pinnwand
 Mitfahrgelegenheit gesucht!!😉
 Für die A-Freizeit nach Rothenburg suche ich, Gaby aus Mannheim, eine Mitfahrgelegenheit.
 Habe die komplette Freizeit gebucht vom 26.12.-05.01.2023 und würde mich freuen wenn mich jemand mitnehmen kann.
+<hopskopf@web.de>
 
 Vielen Dank und gute 24h
 LG Gaby
