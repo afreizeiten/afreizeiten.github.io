@@ -14,7 +14,7 @@ Winterfreizeit in Rothenburg ob der Tauber
 
 Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
 
-[Winterfreiziet in Rothenburg ob der Tauber](pdf/Silvesterfreizeit 2022 Rothenburg_Endfassung.pdf)
+[Winterfreiziet in Rothenburg ob der Tauber](pdf/Silvesterfreizeit_2022_Rothenburg_Endfassung_2.pdf)
 
 --------------------------------------------------------------------------------------------------
 
