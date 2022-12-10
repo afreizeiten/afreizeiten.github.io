@@ -36,6 +36,16 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
+23.12.2022 - 27.12.2022
+
+Weihnachten mit A-FreundInnen
+
+[Winterfreizeit in Bremen](pdf/Weihnachten mit A-FreundInnen.pdf)
+
+Freizeit von Mechthild aus Bremen
+
+-----------------------------------------------------------------------------------------------------
+
 27.12.2022 - 04.01.2023
 
 Weihnachten 2022 in Schaippach
