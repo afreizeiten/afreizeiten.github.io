@@ -42,7 +42,7 @@ Weihnachten mit A-FreundInnen
 
 ![Herbst Bilder Bremen](/images/Leiste_Herbst_Bremen.jpg)
 
-[Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf)
+[Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf.pdf)
 
 Freizeit von Mechthild aus Bremen
 
