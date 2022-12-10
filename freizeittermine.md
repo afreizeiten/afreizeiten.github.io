@@ -40,6 +40,8 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 Weihnachten mit A-FreundInnen
 
+![Herbst Bilder Bremen](/images/Leiste_Herbst_Bremen.jpg)
+
 [Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf)
 
 Freizeit von Mechthild aus Bremen
