@@ -18,6 +18,18 @@ LG Gaby
 
 ------------------------------------------------------------------------
 
+Hallo !!!
+
+Suche MFG-Mitfahrgelegenheit
+KA – Rothenburg
+31.12.-05.01.2023 hab ich gebucht. Wäre freundlich, wenn mich jemand aus unserem
+Raum/ Durchreise mitnehmen könnte.
+Wohne „Zubringer nah“
+Vielen Dank und gute 24h LG Karin aus Karlsruhe
+karinregina@web.de
+
+-----------------------------------------------------------------------
+
 Nachrichten von Freizeitlern an Freizeitler, z.B.
 Mitfahrgelegenheiten
 
