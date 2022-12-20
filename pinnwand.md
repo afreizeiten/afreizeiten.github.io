@@ -8,6 +8,14 @@ title: Pinnwand
 
 -----------------------------------------------------------------------
 
+Mitfahrgelegenheit gesucht:
+BERLIN  ---   ROTHENBURG
+Hin: 26.12
+Zurück: 1.1.
+Padma 0176 430 795 19
+
+------------------------------------------------------------------------
+
 Mitfahrgelegenheit gesucht!!😉
 Für die A-Freizeit nach Rothenburg suche ich, Gaby aus Mannheim, eine Mitfahrgelegenheit.
 Habe die komplette Freizeit gebucht vom 26.12.-05.01.2023 und würde mich freuen wenn mich jemand mitnehmen kann.
