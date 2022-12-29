@@ -108,6 +108,16 @@ Detailinformationen erfolgen demnächst!
 
 -----------------------------------------------------------------------------------------------------
 
+30.06.2023 - 09.07.2023
+
+Sommerfreizeit in Bleichnau  Freunde laden Freunde ein 
+
+[Sommer 2023 in Bleichnau Wolfgang](pdf/Freizeit20231(1)(1)(1)(1).pdf)
+
+Sommerfreizeit von Wolfgang
+
+-----------------------------------------------------------------------------------------------------
+
 17.07.2023 - 28.07.2023 
 
 ![allmannsried](/images/allmansried.jpeg)
