@@ -110,7 +110,7 @@ Detailinformationen erfolgen demnächst!
 
 30.06.2023 - 09.07.2023
 
-![Bleichnau Allgäu](/images/Bilder_Bleichnau.jpg)
+![Bleichnau Allgäu](/images/Bilder_Bleichnau.png)
 
 Sommerfreizeit in Bleichnau  Freunde laden Freunde ein 
 
