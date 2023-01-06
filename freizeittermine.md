@@ -112,6 +112,8 @@ Detailinformationen erfolgen demnächst!
 
 ![Bleichnau Allgäu](/images/Bilder_Bleichnau.png)
 
+https://ik.imagekit.io/zcrl68n9dky/tr:oi-images@@Bleichnau_1.jpg,ox-0,oy-0,ow-94,oh-68:oi-images@@Bleichnau_2.heic,ox-97,oy-0,ow-94,oh-68:oi-images@@Bleichnau_3.jpg,ox-194,oy-0,ow-94,oh-68:oi-images@@Bleichnau_4.jpg,ox-291,oy-0,ow-94,oh-68:oi-images@@Bleichnau_5.jpg,ox-388,oy-0,ow-94,oh-68/white.jpg
+
 Sommerfreizeit in Bleichnau  Freunde laden Freunde ein 
 
 [Sommer 2023 in Bleichnau Wolfgang](pdf/Freizeit20231(1)(1)(1)(1).pdf)
