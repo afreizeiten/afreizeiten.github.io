@@ -16,6 +16,8 @@ Virtuelle Weihnachtsfreizeit
 
 Winterfreizeit in Rothenburg ob der Tauber 
 
+[Winterfreiziet in Rothenburg ob der Tauber](pdf/Silvesterfreizeit_2022_Rothenburg_Endfassung_2.pdf)
+
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
 [Rothenburg 2021](/pdf/Silvester-Rothenburg-2021.pdf)
