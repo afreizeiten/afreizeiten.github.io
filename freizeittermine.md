@@ -6,18 +6,6 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-26.12.2022 - 05.01.2023
-
-Winterfreizeit in Rothenburg ob der Tauber
-
-![Rothenburg op der Tauber](/images/rothenburg.png)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e. V. 
-
-[Winterfreiziet in Rothenburg ob der Tauber](pdf/Silvesterfreizeit_2022_Rothenburg_Endfassung_2.pdf)
-
---------------------------------------------------------------------------------------------------
-
 12.06.2023 - 24.06.2023 
 
 Sommerfreizeit in Grömitz
