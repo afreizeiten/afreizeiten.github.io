@@ -26,30 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-23.12.2022 - 27.12.2022
-
-Weihnachten mit A-FreundInnen
-
-![Herbst Bilder Bremen](/images/Leiste_Herbst_Bremen.jpg)
-
-[Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf.pdf)
-
-Freizeit von Mechthild aus Bremen
-
------------------------------------------------------------------------------------------------------
-
-27.12.2022 - 04.01.2023
-
-Weihnachten 2022 in Schaippach
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Weihnachten 2022 in Schaippach](pdf/Einladung_Weihnachtsfreizeit_Schaippach_2022.pdf)
-
-Freizeit von Erich und Gerburg
-
------------------------------------------------------------------------------------------------------
-
 19.02.2023 - 26.02.2023 
 
 Winterfreizeit in Ruhpolding
