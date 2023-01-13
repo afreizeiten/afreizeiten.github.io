@@ -54,9 +54,7 @@ Freizeit von Silke und Dietrich
 
 ![Schaippach](/images/schaippach.jpeg)
 
-Ostern 2023 in der Schaippachmühle
-
-Einladung folgt!
+[Osterfreizeit in Schaippach](pdf/EinladungOsterfreizeitSchaippach2023.pdf)
 
 Freizeit von Erich und Gerburg
 
