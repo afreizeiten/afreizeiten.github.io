@@ -82,6 +82,14 @@ Sommerfreizeit von Wolfgang
 
 -----------------------------------------------------------------------------------------------------
 
+10.06.2023 - 20.06.2023
+
+[Bernrieder Freizeit 2023](pdf/Bernried23-23.01.26-2Flyer07.10-20.pdf)
+
+Bernrieder Freizeit von Mati, Elisabeth und Dorothee
+
+-----------------------------------------------------------------------------------------------------
+
 17.07.2023 - 28.07.2023 
 
 ![allmannsried](/images/allmansried.jpeg)
