@@ -64,7 +64,7 @@ Freizeit von Erich und Gerburg
 
 ![BremenOsterfreizeit](LeisteOsternBremen.jpg)
 
-[Osterfreizeit 2023 in Bremen Blumenthal](OsterfreizeitinBlumenthalbeiBremen.pdf)
+[Osterfreizeit 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
 
 Osterfreizeit mit und von Mechthild
 
