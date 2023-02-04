@@ -4,10 +4,13 @@ title: Veranstalter
 ---
 # Veranstalter
 
-- Selbsthilfe-Freizeitwerk e.V. - unterschiedliche TeamerInnen (Binz/Rügen,
-  Rothenburg, Blankenheim)
-- Erich (Schaippach)
+- Selbsthilfe-Freizeitwerk e.V. - unterschiedliche TeamerInnen (Grömitz,
+  Rothenburg,)
+- Erich, Gerburg (Schaippach)
 - Gerhard (Türkei)
-- Gerti (Sylt, Reit im Winkl)
-- Mechtild, Günter (Bremen, Westfriesland)
+- Gerti (Ruhpolding)
+- Mechtild(Bremen, Westfriesland)
 - Wolfgang (Allmannsried)
+- Silke & Dietrich (Allmannsried)
+- Dorothee (Kloster Bernrieder)
+- N. (Schaippach)
