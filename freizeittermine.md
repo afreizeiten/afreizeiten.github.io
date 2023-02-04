@@ -132,11 +132,13 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
-12.10.2023 - 21.10.2023 - Vorankündigung
+12.10.2023 - 21.10.2023
 
 Herbstfreizeit in Bremen
 
 ![Bremen](/images/Leiste_Herbst_Bremen.jpg)
+
+[Herbstfreizeit_2023 Bremen](pdf/HerbstfreizeitinBremen.pdf)
 
 Freizeit von Wolfgang und Mechtild
 
