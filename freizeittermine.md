@@ -136,6 +136,8 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 Herbstfreizeit in Bremen
 
+![Bremen](/images/Leiste_Herbst_Bremen.jpg)
+
 Freizeit von Wolfgang und Mechtild
 
 --------------------------------------------------------------------------------------------------------
