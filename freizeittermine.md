@@ -70,13 +70,13 @@ Osterfreizeit von Traudi und Mechthild
 
 ------------------------------------------------------------------------------------------------------
 
-26.06.2023 - 05.07.2023 - Vorankündigung
-
-Sommerfreizeit in der Schaippach-Mühle
+26.06.2023 - 05.07.2023 
 
 ![Schaippach](/images/schaippach.jpeg)
 
-Detailinformationen erfolgen demnächst!
+[Osterfreizeit in Schaippach](pdf/SchaippachFlyerFreizeitwerk.pdf)
+
+Sommerfreizeit von N.
 
 -----------------------------------------------------------------------------------------------------
 
