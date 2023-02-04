@@ -44,18 +44,6 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 --------------------------------------------------------------------------------------------------------------
 
-## Wochenende in Blumenthal mit Komitee für alle A-Freunde und -Freundinnen
-
-Eine herzliche Einladung zur Minifreizeit in Blumenthal vom 16. bis zum 18. Dezember 2022
-
-Lebendiger Austausch, Kuscheln, menschliche Wärme…
-
-Wir freuen uns auf euch, Reiner und Mechtild
-
-[Mini-Freizeit Bremen.pdf](pdf/Mini-Freizeit Bremen Herbst 2022.pdf)
-
---------------------------------------------------------------------------------
-
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
