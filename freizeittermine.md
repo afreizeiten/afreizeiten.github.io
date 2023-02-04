@@ -74,7 +74,7 @@ Osterfreizeit von Traudi und Mechthild
 
 ![Schaippach](/images/schaippach.jpeg)
 
-[Osterfreizeit in Schaippach](pdf/SchaippachFlyerFreizeitwerk.pdf)
+[Sommerfreizeit in Schaippach](pdf/SchaippachFlyerFreizeitwerk.pdf)
 
 Sommerfreizeit von N.
 
