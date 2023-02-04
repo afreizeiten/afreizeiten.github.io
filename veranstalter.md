@@ -9,7 +9,7 @@ title: Veranstalter
 - Erich, Gerburg (Schaippach)
 - Gerhard (Türkei)
 - Gerti (Ruhpolding)
-- Mechtild(Bremen, Westfriesland)
+- Mechtild (Bremen, Westfriesland)
 - Wolfgang (Allmannsried)
 - Silke & Dietrich (Allmannsried)
 - Dorothee (Kloster Bernrieder)
