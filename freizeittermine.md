@@ -132,6 +132,14 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
+12.10.2023 - 21.10.2023 - Vorankündigung
+
+Herbstfreizeit in Bremen
+
+Freizeit von Wolfgang und Mechtild
+
+--------------------------------------------------------------------------------------------------------
+
 04.02.2024 - 11.02.2024 - Vorankündigung
 
 Winterfreizeit in Ruhpolding 
