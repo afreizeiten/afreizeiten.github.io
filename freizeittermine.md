@@ -76,7 +76,7 @@ Sommerfreizeit in der Schaippach-Mühle
 
 ![Schaippach](/images/schaippach.jpeg)
 
-[Sommerfreizeit in Schaippach](pdf/SchaippachFlyerFreizeitwerk.pdf)
+[Sommerfreizeit in Schaippach](pdf/SchaippachFlyerSommer.pdf)
 
 Sommerfreizeit von N.
 
