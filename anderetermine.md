@@ -36,21 +36,13 @@ Spendenbasis
 
 Infos unter 01782090444 (Monika)
 
------------------------------------------------------------------------------------
+------------------------------------------------------------------------------------------------
 
 ## Treffen von 12-Schritte Gruppen
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
---------------------------------------------------------------------------------------------------------------
-
-### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
-
-Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
-
-<http://www.12schrittewochenende.de>
-
---------------------------------------------------------------------------------
+----------------------------------------------------------------------------------------------------
 
 ### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
 
