@@ -47,13 +47,21 @@ findet jeden letzten Sonntag im Monat von 16 bis 18 Uhr (Check-In ab 15 Uhr) in 
 
 Anmeldung und Infos unter: <kuscheln-im-norden@web.de> (Liane und Mechtild)
 
-------------------------------------------------------------------------------------------------
+------------------------------------------------------------------------------------------------------
+
+### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
+
+Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
+
+<http://www.12schrittewochenende.de>
+
+-------------------------------------------------------------------------------------------------------
 
 ## Treffen von 12-Schritte Gruppen
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
-----------------------------------------------------------------------------------------------------
+--------------------------------------------------------------------------------------------------------
 
 ### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
 
