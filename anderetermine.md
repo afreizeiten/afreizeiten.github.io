@@ -15,6 +15,11 @@ Für die Inhalte der jeweiligen Ausschreibung können wir keine Verantwortung ü
 Hier findet Ihr Veranstaltungen, die keine A-Freizeiten sind, aber von denen
 wir glauben, dass sie Euch interessieren könnten. Bitte teilt uns Termine und
 Veranstaltungen mit, die in diese Kategorie passen.
+## Treffen von 12-Schritte Gruppen
+
+bitte bekanntgeben - <webmaster@a-freizeiten.de>
+
+-----------------------------------------------------------------------------------------------
 
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
@@ -23,11 +28,15 @@ das K-Meeting in Bonn-Beuel, Neu-Vilich statt.
 
 Kontakt / Auskunft über Raimund, Tel.: 02241-319386
 
+----------------------------------------------------------------------------------------------
+
 ### Kuschelmeeting Remscheid
 
 Jeden 2. Und 4. Freitag um 19.30 Uhr!
 Für Anmeldung und weitere Infos bitte Mo-Fr 16h oder 18h unter folgender Nummer anrufen,
 Oliver 01604371917
+
+----------------------------------------------------------------------------------------------
 
 ### Kuschelmeeting
 für Frauen, jeden ersten Donnerstag im Monat
@@ -56,12 +65,6 @@ Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph
 <http://www.12schrittewochenende.de>
 
 -------------------------------------------------------------------------------------------------------
-
-## Treffen von 12-Schritte Gruppen
-
-bitte bekanntgeben - <webmaster@a-freizeiten.de>
-
---------------------------------------------------------------------------------------------------------
 
 ### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
 
