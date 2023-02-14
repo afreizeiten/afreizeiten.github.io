@@ -38,6 +38,17 @@ Infos unter 01782090444 (Monika)
 
 ------------------------------------------------------------------------------------------------
 
+### Kuschel-Go-Round in Bremen
+
+
+für alle A-Menschen und andere Interessierte
+findet jeden letzten Sonntag im Monat von 16 bis 18 Uhr (Check-In ab 15 Uhr) in Bremen-Blumenthal statt.
+
+Anmeldung und Infos unter: kuscheln-im-norden@web.de (Liane und Mechtild)
+
+
+------------------------------------------------------------------------------------------------
+
 ## Treffen von 12-Schritte Gruppen
 
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
