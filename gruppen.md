@@ -71,10 +71,6 @@ HIV  Anonymous
 HIV   Anonymous
   <https://www.hivanonymous.com>
 
-I.S.A.
-Incest Survivors Anonymous - Anonyme Inzestüberlebende
-  <http://www.isa-anonyme-inzest-ueberlebende.de>
-
 Kuschelmeeting
  offen   für alle A-Gruppen-Angehörige
    Kontakt:   siehe "Andere Veranstaltungen"
