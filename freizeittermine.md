@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-19.02.2023 - 26.02.2023 
-
-Winterfreizeit in Ruhpolding
-
-![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
-
-[Winterfreizeit in Ruhpolding](pdf/Winterfreizeit_2023.pdf)
-
- Freizeit von Gerti und Wolfgang (Landau) 
-
-------------------------------------------------------------------------------------------------------
-
 03.04.2023 – 10.04.2023
 
 Einladung zur Osterfreizeit in Allmannsried
