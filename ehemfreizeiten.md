@@ -209,6 +209,9 @@ Sommerfreizeiten in Allmannsried
 
 [Herbstfreizeit_2022 Ruhpolding](pdf/Herbstfreizeit_2022_anonym.pdf)
 
+![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
+[Winterfreizeit in Ruhpolding](pdf/Winterfreizeit_2023.pdf)
+
 ----------------------------------------------------------------------------
 
 ## Freizeit von Gerhard
