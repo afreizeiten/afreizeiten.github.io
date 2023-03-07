@@ -60,6 +60,8 @@ Osterfreizeit von Traudi und Mechthild
 
 26.bis 28.Mai 2023 (Pfingsten)
 
+![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
+
 Wochenende für Ehemalige aus allen 12-Schritte-Kliniken
 und für A-Freundinnen und A-Freunde
 
