@@ -58,6 +58,19 @@ Osterfreizeit von Traudi und Mechthild
 
 ------------------------------------------------------------------------------------------------------
 
+26.bis 28.Mai 2023 (Pfingsten)
+
+Wochenende für Ehemalige aus allen 12-Schritte-Kliniken
+und für A-Freundinnen und A-Freunde
+
+[Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
+
+Anmeldung unter:  minifreizeitminden@vodafonemail.de
+
+Minifreizeit von Mechtild und Helmut
+
+------------------------------------------------------------------------------------------------------
+
 26.06.2023 - 05.07.2023 
 
 Sommerfreizeit in der Schaippach-Mühle
