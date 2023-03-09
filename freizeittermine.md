@@ -151,7 +151,7 @@ Freizeit von Wolfgang und Mechtild
 
 --------------------------------------------------------------------------------------------------------
 
-04.02.2024 - 11.02.2024 - Vorankündigung
+04.02.2024 - 11.02.2024 - **Vorankündigung**
 
 Winterfreizeit in Ruhpolding 
 
@@ -161,7 +161,7 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
-16.09.2024 - 27.09.2024 - Vorankündigung
+16.09.2024 - 27.09.2024 - **Vorankündigung**
 
 Herbstfreizeit in Ruhpolding 
 
