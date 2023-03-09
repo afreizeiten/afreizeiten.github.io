@@ -58,7 +58,8 @@ Osterfreizeit von Traudi und Mechthild
 
 ------------------------------------------------------------------------------------------------------
 
-26.bis 28.Mai 2023 (Pfingsten)
+26.05.2023 - 28.05.2023 
+Einladung zur Pfingstfreizeit in Minden
 
 ![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
 
@@ -69,7 +70,7 @@ und für A-Freundinnen und A-Freunde
 
 Anmeldung unter:  minifreizeitminden@vodafonemail.de
 
-Minifreizeit von Mechtild und Helmut
+Freizeit von Mechtild und Helmut
 
 ------------------------------------------------------------------------------------------------------
 
