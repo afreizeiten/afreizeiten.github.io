@@ -133,8 +133,7 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 Spätsommerfreizeit an der Ostsee in Polen (Pustkowo)
 
-
-
+![Polen](/images/Leiste_Polen.jpg)
 
 Freizeit von Traudi und Mechtild
 
