@@ -129,6 +129,17 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
+08.09.2023 - 17.09.2023 - **Vorankündigung**
+
+Spätsommerfreizeit an der Ostsee in Polen (Pustkowo)
+
+
+
+
+Freizeit von Traudi und Mechtild
+
+--------------------------------------------------------------------------------------------------------
+
 12.10.2023 - 21.10.2023
 
 Herbstfreizeit in Bremen
