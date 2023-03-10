@@ -50,7 +50,7 @@ Freizeit von Erich und Gerburg
 
 06.04.2023 - 12.04.2023
 
-![BremenOsterfreizeit](/images/LeisteOsternBremen.jpg)
+![BremenOsterfreizeit](/images/Leiste_Ostern_neuab10.3.23.jpg)
 
 [Osterfreizeit 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
 
