@@ -139,7 +139,7 @@ Freizeit von Traudi und Mechtild
 
 Herbstfreizeit in Bremen
 
-![Bremen](/images/Leiste_Herbst_neu (ab 10.3.23).jpg)
+![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
 
 [Herbstfreizeit_2023 Bremen](pdf/HerbstfreizeitinBremen.pdf)
 
