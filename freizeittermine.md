@@ -59,16 +59,12 @@ Osterfreizeit von Traudi und Mechthild
 ------------------------------------------------------------------------------------------------------
 
 26.05.2023 - 28.05.2023 
+
 Einladung zur Pfingstfreizeit in Minden
 
 ![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
 
-Wochenende für Ehemalige aus allen 12-Schritte-Kliniken
-und für A-Freundinnen und A-Freunde
-
 [Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
-
-Anmeldung unter:  minifreizeitminden@vodafonemail.de
 
 Freizeit von Mechtild und Helmut
 
