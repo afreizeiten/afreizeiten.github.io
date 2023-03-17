@@ -18,11 +18,11 @@ Ich würde gerne ab Ostermontag abends teilnehmen. Somit wäre ein Bett im Fraue
 Bei Interesse bitte um schnelle Antwort. Lieber Gruß!  
 Jutta  
 indala@gmx.de
------------------------------------------------------------------------
+----------------------------------------------------------------------------
 
 ### Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
 
------------------------------------------------------------------------
+----------------------------------------------------------------------------
 
 
 Beiträge<br>
