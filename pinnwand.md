@@ -17,7 +17,7 @@ indala@gmx.de
 
 ----------------------------------------------------------------------------
 
-### Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
+###### Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
 
 ----------------------------------------------------------------------------
 
