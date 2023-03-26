@@ -125,11 +125,13 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
-08.09.2023 - 17.09.2023 - **Vorankündigung**
+08.09.2023 - 17.09.2023
 
 Spätsommerfreizeit an der Ostsee in Polen (Pustkowo)
 
 ![Polen](/images/Leiste_Polen.jpg)
+
+[Spätsommerfreizeit_2023 in Polen](pdf/EinladungPolen23.pdf)
 
 Freizeit von Traudi und Mechtild
 
