@@ -93,7 +93,7 @@ Bernrieder Freizeit von Mati, Elisabeth und Dorothee
 
 -----------------------------------------------------------------------------------------------------
 
-17.07.2023 - 28.07.2023 
+18.07.2023 - 28.07.2023 
 
 ![allmannsried](/images/allmansried.jpeg)
 
