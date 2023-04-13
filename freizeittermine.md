@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-03.04.2023 – 10.04.2023
-
-Einladung zur Osterfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Osterfreizeit in Allmannsried](pdf/Osterfreizeit Allmannsried 2023-Ausschreibung .pdf)
-
-Freizeit von Silke und Dietrich
-
-------------------------------------------------------------------------------------------------------
-
 06.04.2023 - 15.04.2023
 
 ![Schaippach](/images/schaippach.jpeg)
