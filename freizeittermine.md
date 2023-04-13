@@ -36,16 +36,6 @@ Freizeit von Erich und Gerburg
 
 ------------------------------------------------------------------------------------------------------
 
-06.04.2023 - 12.04.2023
-
-![BremenOsterfreizeit](/images/Leiste_Ostern_neuab10.3.23.jpg)
-
-[Osterfreizeit 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
-
-Osterfreizeit von Traudi und Mechthild
-
-------------------------------------------------------------------------------------------------------
-
 26.05.2023 - 28.05.2023 
 
 Einladung zur Pfingstfreizeit in Minden
