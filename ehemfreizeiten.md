@@ -101,7 +101,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 #### Ostern in der Schaippachmühle
 
-[Osterfreizeit in Schaippach](pdf/EinladungOsterfreizeitSchaippach2023.pdf)
+[Ostern 2023 in Schaippach](pdf/EinladungOsterfreizeitSchaippach2023.pdf)
 
 [Ostern 2022 in Schaippach](pdf/2022OsternSchaippach.pdf)
 
