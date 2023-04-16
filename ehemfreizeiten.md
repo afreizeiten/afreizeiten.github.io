@@ -119,11 +119,11 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 [Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf.pdf)
 
-[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
-
 Osterfreizeiten in Bremen
 
 ![Bremen](images/Leiste_Herbst_Bremen.jpg)
+
+[Osterfreizeit 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
 
 [Ostern 2019.pdf](/pdf/Oster-Freizeit Bremen 2019.pdf)
 
@@ -136,6 +136,8 @@ Osterfreizeiten in Bremen
 Herbst-Freizeiten in Bremen
 
 ![Bremen](images/LeisteOsternBremen.jpg)
+
+[Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
 
 [Herbst-Freizeit Bremen 2021.pdf](/pdf/Einladung Herbst 2021.pdf)
 
