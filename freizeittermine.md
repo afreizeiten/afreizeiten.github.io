@@ -26,16 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-06.04.2023 - 15.04.2023
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Osterfreizeit in Schaippach](pdf/EinladungOsterfreizeitSchaippach2023.pdf)
-
-Freizeit von Erich und Gerburg
-
-------------------------------------------------------------------------------------------------------
-
 26.05.2023 - 28.05.2023 
 
 Einladung zur Pfingstfreizeit in Minden
