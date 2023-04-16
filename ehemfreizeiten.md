@@ -163,9 +163,11 @@ Freizeiten in Westfriesland
 
 ![allmannsried](/images/allmansried.jpeg)
 
+### Sommerfreizeiten
+
 [Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
 
-![allmannsried](/images/allmansried.jpeg)
+### Osterfreizeiten
 
 [Ostern 2023 in Allmannsried](pdf/Osterfreizeit Allmannsried 2023-Ausschreibung .pdf)
 
