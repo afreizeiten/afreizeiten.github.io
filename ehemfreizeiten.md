@@ -123,11 +123,11 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 [Ostern 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
 
-[Ostern 2019 in Bremen Blumenthal](/pdf/Oster-Freizeit Bremen 2019.pdf)
+[Ostern 2019 in Bremen Blumenthal](/pdf/Oster-FreizeitBremen2019.pdf)
 
-[Ostern 2018 in Bremen Blöumenthal](/pdf/Ostern-Freizeit Bremen 2018.pdf)
+[Ostern 2018 in Bremen Blumenthal](/pdf/Ostern-FreizeitBremen2018.pdf)
 
-[Ostern 2017 in Bremen Blumethal](pdf/2017 Ostern in Blumenthal.pdf)
+[Ostern 2017 in Bremen Blumethal](pdf/2017OsterninBlumenthal.pdf)
 
 [Ostern 2016 in Bremen Blumenthal](pdf/BremenOstern2016.pdf)
 
