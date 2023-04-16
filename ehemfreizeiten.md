@@ -117,25 +117,23 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeiten von Mechtild
 
-[Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf.pdf)
-
-Osterfreizeiten in Bremen
-
-![Bremen](images/Leiste_Herbst_Bremen.jpg)
-
-[Osterfreizeit 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
-
-[Ostern 2019.pdf](/pdf/Oster-Freizeit Bremen 2019.pdf)
-
-[Ostern 2018.pdf](/pdf/Ostern-Freizeit Bremen 2018.pdf)
-
-[Ostern 2017.pdf](pdf/2017 Ostern in Blumenthal.pdf)
-
-[Ostern 2016.pdf](pdf/BremenOstern2016.pdf)
-
-Herbst-Freizeiten in Bremen
+#### Osterfreizeiten in Bremen
 
 ![Bremen](images/LeisteOsternBremen.jpg)
+
+[Ostern 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
+
+[Ostern 2019 in Bremen Blumenthal](/pdf/Oster-Freizeit Bremen 2019.pdf)
+
+[Ostern 2018 in Bremen Blöumenthal](/pdf/Ostern-Freizeit Bremen 2018.pdf)
+
+[Ostern 2017 in Bremen Blumethal](pdf/2017 Ostern in Blumenthal.pdf)
+
+[Ostern 2016 in Bremen Blumenthal](pdf/BremenOstern2016.pdf)
+
+#### Herbst-Freizeiten in Bremen
+
+![Bremen](images/Leiste_Herbst_Bremen.jpg)
 
 [Herbst-Freizeit Bremen.pdf](/pdf/Einladung Herbst 2022.pdf)
 
@@ -151,13 +149,19 @@ Herbst-Freizeiten in Bremen
 
 [Herbst-Freizeit Bremen 2016.pdf](pdf/2016 Herbst in der Bremer Schweiz.pdf)
 
-Freizeiten in Westfriesland
+#### Winterfreizeiten 
+
+[Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf.pdf)
+
+#### Freizeiten in Westfriesland
 
 ![Friesland](images/Leiste_Friesland.jpg)
 
 [Westfriesland 2019.pdf](/pdf/Freizeit-Westfriesland 2019.pdf)
 
 [Westfriesland 2017.pdf](pdf/2017 Westfriesland_Holland.pdf)
+
+
 
 ----------------------------------------------------------------------------
 
