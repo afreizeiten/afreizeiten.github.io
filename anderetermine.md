@@ -21,6 +21,17 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 -----------------------------------------------------------------------------------------------
 
+01.06.2023 - 04.06.2023
+
+Lebensqualität" - ein A-Beinnungswochenende in
+Neustadt an der Weinstraße
+
+
+
+Weitere Infos unter www.e-und-a.net/neustadt-2023Besinnungswochenende
+
+-----------------------------------------------------------------------------------------------
+
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
 Jeden 1. und 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
