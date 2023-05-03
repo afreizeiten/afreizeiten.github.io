@@ -26,7 +26,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 Lebensqualität" - ein A-Beinnungswochenende in
 Neustadt an der Weinstraße
 
-
+[Besinnungswochenende in Neustadt](pdf/2023FlyerNW.pdf)
 
 Weitere Infos unter www.e-und-a.net/neustadt-2023Besinnungswochenende
 
