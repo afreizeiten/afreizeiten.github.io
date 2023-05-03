@@ -21,7 +21,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 -----------------------------------------------------------------------------------------------
 
-01.06.2023 - 04.06.2023
+### 01.06.2023 - 04.06.2023
 
 Lebensqualität" - ein A-Beinnungswochenende in
 Neustadt an der Weinstraße
