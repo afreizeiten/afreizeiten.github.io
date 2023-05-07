@@ -7,7 +7,7 @@ title: Pinnwand
 ## Gesuche und Angebote für Mitfahrgelegenheiten
 
 ---------------------------------------------------------------------------
-## Suche mfg für eine Person von berlin nach Grömitz und zurück.
+Suche mfg für eine Person von berlin nach Grömitz und zurück.
 
 Hin: 12.6.
 
