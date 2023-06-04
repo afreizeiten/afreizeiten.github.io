@@ -163,7 +163,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ### Minifreizeiten
 
-[Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
+![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
 
 [Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
 
