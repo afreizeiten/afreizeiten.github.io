@@ -165,6 +165,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 [Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
 
+[Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
+
 ----------------------------------------------------------------------------
 
 ## Freizeit von Silke und Dietrich
