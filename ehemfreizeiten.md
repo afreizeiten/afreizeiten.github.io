@@ -166,7 +166,7 @@ Sommerfreizeiten in Grömitz/Ostsee
 26.05.2023 - 28.05.2023 
 
 Einladung zur Pfingstfreizeit in Minden
-
+[Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
 ----------------------------------------------------------------------------
 
 ## Freizeit von Silke und Dietrich
