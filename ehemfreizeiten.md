@@ -161,7 +161,11 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 [Westfriesland 2017.pdf](pdf/2017 Westfriesland_Holland.pdf)
 
+### Minifreizeiten
 
+26.05.2023 - 28.05.2023 
+
+Einladung zur Pfingstfreizeit in Minden
 
 ----------------------------------------------------------------------------
 
