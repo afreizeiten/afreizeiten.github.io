@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-26.05.2023 - 28.05.2023 
-
-Einladung zur Pfingstfreizeit in Minden
-
-![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
-
-[Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
-
-Freizeit von Mechtild und Helmut
-
-------------------------------------------------------------------------------------------------------
-
 26.06.2023 - 05.07.2023 
 
 Sommerfreizeit in der Schaippach-Mühle
