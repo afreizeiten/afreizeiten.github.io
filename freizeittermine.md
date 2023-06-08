@@ -22,7 +22,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 Silvesterfreizeit in Rothenburg 
 
-![Rothenburg](/images/Rothenburg.png)
+![Rothenburg op der Tauber](/images/rothenburg.png)
 
 **Teamer gesuch**t, Interessenten bitte melden!
 
