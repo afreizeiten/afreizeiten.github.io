@@ -24,7 +24,7 @@ Silvesterfreizeit in Rothenburg
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
-**Teamer gesuch**t, Interessenten bitte melden!
+##**Teamer gesuch**t, Interessenten bitte melden!
 
 ---------------------------------------------------------------------------------------------------
 
