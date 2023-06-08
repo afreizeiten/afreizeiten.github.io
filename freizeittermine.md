@@ -18,6 +18,16 @@ Freizeit vom Selbsthilfe-Freizeitwerk e. V.
 
 ---------------------------------------------------------------------------------------------------
 
+26.12.2023 - 05.01.2024 - **Vorankündigung**
+
+Silvesterfreizeit in Rothenburg 
+
+![Rothenburg](/images/Rothenburg.png)
+
+**Teamer gesuch**t, Interessenten bitte melden!
+
+---------------------------------------------------------------------------------------------------
+
 # Freizeittermine privater Anbieter
 
 ---------------------------------------------------------------------------------------------------
