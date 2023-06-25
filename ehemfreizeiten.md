@@ -41,7 +41,7 @@ Sommerfreizeit Grömitz 2022
 
 [Sommerfreizeit in Grömitz](pdf/2023Gro_mitzV2_Klaus_20221204.pdf)
 
-[Sommerfreizeit Grömitz](pdf/2022 Grömitz Endfassung.pdf)       2023
+[Sommerfreizeit Grömitz](pdf/2022 Grömitz Endfassung.pdf)      
 
 Sommerfreizeit auf Usedom
 
