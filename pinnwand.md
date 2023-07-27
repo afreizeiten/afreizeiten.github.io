@@ -8,7 +8,7 @@ title: Pinnwand
 Eure eMails sollten folgendes enthalten:
 1. Gesuch oder Angbot
 2. Abreiseort nach Freizeitort
-3. Reisezeit Datum = Hin und zurück
+3. Datum Reisezeit = Hin und zurück
 4. Kontaktname 
 5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
