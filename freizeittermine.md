@@ -107,9 +107,9 @@ Osterfreizeit in Bremen
 
 ![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
 
+[Osterfreizeit_2024 Bremen](Osterfreizeit2024Bremen-Blumenthal.pdf)
 
-
-
+Freizeit von Wolfgang (Landau) und Mechthild
 
 --------------------------------------------------------------------------------------------------------
 
