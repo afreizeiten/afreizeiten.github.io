@@ -5,22 +5,14 @@ title: Pinnwand
 # Pinnwand
 
 ## Gesuche und Angebote für Mitfahrgelegenheiten
+Eure eMails sollten folgendes enthalten:
+1. Gesuch oder Angbot
+2. Abreiseort nach Freizeitort
+3. Reisezeit Datum = Hin und zurück
+4. Kontaktname 
+5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
 ---------------------------------------------------------------------------
-Suche mfg für eine Person von berlin nach Grömitz und zurück.
-
-Hin: 12.6.
-
-Zurück: 24.6.
-
- 
-Padma brannolte,
-
-p.brannolteqgmx.net
-
-0176 430 795 19
-
-----------------------------------------------------------------------------
 
 ### Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
 
