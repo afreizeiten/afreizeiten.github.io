@@ -5,7 +5,7 @@ title: Pinnwand
 # Pinnwand
 
 ## Gesuche und Angebote für Mitfahrgelegenheiten
-Eure eMails sollten folgendes enthalten:
+Eure eMails sollten mindestens folgendes enthalten:
 1. Gesuch oder Angbot
 2. Abreiseort nach Freizeitort
 3. Datum Reisezeit = Hin und zurück
