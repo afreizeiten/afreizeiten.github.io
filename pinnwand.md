@@ -12,11 +12,7 @@ Eure eMails sollten folgendes enthalten:
 4. Kontaktname 
 5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
----------------------------------------------------------------------------
-
-### Absagen von Freizeiten wegen des Corona-Virus' siehe „Aktuelles“
-
-----------------------------------------------------------------------------
+------------------------------------------------------------------------
 
 Beiträge<br>
 ...bitte an mich schicken, ich stells dann ein.
