@@ -115,6 +115,16 @@ Freizeit von Wolfgang (Landau) und Mechthild
 
 --------------------------------------------------------------------------------------------------------
 
+15.07.2024 - 25.07.2024  -  **Vorankündigung**
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+Freizeit von Wolfgang
+
+---------------------------------------------------------------------------------------------------------
+
 16.09.2024 - 27.09.2024 - **Vorankündigung**
 
 Herbstfreizeit in Ruhpolding 
