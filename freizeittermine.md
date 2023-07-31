@@ -100,7 +100,7 @@ Osterfreizeit in Bremen
 
 [Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
 
-Freizeit von Wolfgang (Landau) und Mechthild
+Freizeit von Wolfgang und Mechtild
 
 --------------------------------------------------------------------------------------------------------
 
