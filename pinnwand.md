@@ -13,6 +13,18 @@ Eure eMails sollten mindestens folgendes enthalten:
 5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
 ------------------------------------------------------------------------
+Liebe Freizeitler,
+ 
+kann mich jemand am 21.08. zur Allmannsrieder Freizeit mitnehmen? Und wieder zurück?
+Ich habe ein Auto, aber kann eventuell aus Gesundheitsgründen noch nicht selbst fahren, würde mein Auto zur Verfügung stellen.
+ 
+Ich wohne in Herzogenaurach bei Nürnberg.
+ 
+Lieber Gruß!
+ 
+Jutta
+
+-------------------------------------------------------------------------
 
 Beiträge<br>
 ...bitte an mich schicken, ich stells dann ein.
