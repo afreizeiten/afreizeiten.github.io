@@ -187,6 +187,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeiten von Wolfgang
 
+[Sommer 2023 in Allmannsried Wolfgang](pdf/A-Freizeit 2023 (1).pdf)
+
 ![allmannsried](/images/allmansried.jpeg)
 
 Sommerfreizeiten in Allmannsried
