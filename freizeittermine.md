@@ -24,16 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-18.07.2023 - 28.07.2023 
-
-![allmannsried](/images/allmansried.jpeg)
-
-Sommerfreizeit in Allmannsried von Wolfgang
-
-[Sommer 2023 in Allmannsried Wolfgang](pdf/A-Freizeit 2023 (1).pdf)
-
-------------------------------------------------------------------------------------------------------
-
 21.08.2023 - 01.09.2023 
 
 ![allmannsried](/images/allmansried.jpeg)
