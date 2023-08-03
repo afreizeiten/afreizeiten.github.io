@@ -23,6 +23,8 @@ Ich wohne in Herzogenaurach bei Nürnberg.
 Lieber Gruß!
  
 Jutta
+indala@gmx.de
+01520 213  77 06
 
 -------------------------------------------------------------------------
 
