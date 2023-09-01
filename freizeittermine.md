@@ -110,8 +110,6 @@ Freizeit von Wolfgang und Mechtild
 
 Pfingst-Freizeit im Orangenhain, Nähe Valencia
 
-<img src="/images/Bild1.avif" width="100" height="70"><img src="/images/Bild3.avif" width="100" height="70"><img src="/images/Bild4.avif" width="100" height="70">
-
 [Pfingsfreizeit_2024 Valencia](pdf/Pfingst.pdf)
 
 Freizeit von Monika (Bodensee)
