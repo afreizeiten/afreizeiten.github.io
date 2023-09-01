@@ -126,6 +126,18 @@ Freizeit von Wolfgang
 
 ---------------------------------------------------------------------------------------------------------
 
+26.08.2024 - 06.09.2024
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Sommer 2024 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit_2024.pdf)
+
+Freizeit von  Silke und Dietrich
+
+---------------------------------------------------------------------------------------------------------
+
 16.09.2024 - 27.09.2024 - **Vorankündigung**
 
 Herbstfreizeit in Ruhpolding 
