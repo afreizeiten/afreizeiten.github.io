@@ -86,7 +86,7 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 Osterfreizeit in Allmannsried
 
-
+![allmannsried](/images/allmansried.jpeg)
 
 [Osterfreizeit_2024 Allmannsried](pdf/AusschreibungOsterfreizeit_24.pdf)   
 
