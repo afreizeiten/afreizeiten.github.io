@@ -82,6 +82,18 @@ Freizeit von Gerti und Wolfgang (Landau)
 
 --------------------------------------------------------------------------------------------------------
 
+25.03.2024 - 02.04.2024
+
+Osterfreizeit in Allmannsried
+
+
+
+[Osterfreizeit_2024 Allmannsried](pdf/AusschreibungOsterfreizeit_24.pdf)   
+
+Freizeit von Silke und Dietrich
+
+--------------------------------------------------------------------------------------------------------
+
 28.03.2024 - 06.04.2024
 
 Osterfreizeit in Bremen
