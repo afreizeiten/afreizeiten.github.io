@@ -173,15 +173,17 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ## Freizeit von Silke und Dietrich
 
-![allmannsried](/images/allmansried.jpeg)
-
 #### Sommerfreizeiten
+
+![allmannsried](/images/allmansried.jpeg)
 
 [Sommer 2023 in Allmannsried Silke und Dietrich](pdf/AusschreibungAllmannsried2023_2.pdf)
 
 [Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
 
 #### Osterfreizeiten
+
+![allmannsried](/images/allmansried.jpeg)
 
 [Ostern 2023 in Allmannsried](pdf/Osterfreizeit Allmannsried 2023-Ausschreibung .pdf)
 
