@@ -24,16 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-21.08.2023 - 01.09.2023 
-
-![allmannsried](/images/allmansried.jpeg)
-
-Sommerfreizeit in Allmannsried von Silke und Dietrich
-
-[Sommer 2023 in Allmannsried Silke und Dietrich](pdf/AusschreibungAllmannsried2023_2.pdf)
-
-------------------------------------------------------------------------------------------------------
-
 '01.09.2023 - 08.09.2023  
 
 Herbstfreizeit in Ruhpolding
