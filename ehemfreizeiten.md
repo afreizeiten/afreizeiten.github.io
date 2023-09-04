@@ -177,6 +177,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 #### Sommerfreizeiten
 
+[Sommer 2023 in Allmannsried Silke und Dietrich](pdf/AusschreibungAllmannsried2023_2.pdf)
+
 [Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
 
 #### Osterfreizeiten
