@@ -50,16 +50,6 @@ Freizeit von Wolfgang und Mechtild
 # 2024
 --------------------------------------------------------------------------------------------------------
 
-04.02.2024 - 11.02.2024 - **Vorankündigung**
-
-Winterfreizeit in Ruhpolding 
-
-![Leiste Ruhpolding](/images/Leiste Ruhpolding.png)
-
-Freizeit von Gerti und Wolfgang (Landau)
-
---------------------------------------------------------------------------------------------------------
-
 25.03.2024 - 02.04.2024
 
 Osterfreizeit in Allmannsried
@@ -115,17 +105,4 @@ Sommerfreizeit in Allmannsried
 Freizeit von  Silke und Dietrich
 
 ---------------------------------------------------------------------------------------------------------
-
-16.09.2024 - 27.09.2024 - **Vorankündigung**
-
-Herbstfreizeit in Ruhpolding 
-
-![ruhpolding](/images/bildleiste_2021.png)
-
-Freizeit von Gerti und Wolfgang (Landau)
-
--------------------------------------------------------------------------------------------------------
-
-
-
 
