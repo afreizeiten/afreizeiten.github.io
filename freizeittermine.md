@@ -24,18 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-'01.09.2023 - 08.09.2023  
-
-Herbstfreizeit in Ruhpolding
-
-![ruhpolding](/images/bildleiste_2021.png)
-
-[Herbstfreizeit_2023 Ruhpolding](pdf/Herbstfreizeit_2023.pdf)
-
-Freizeit von Gerti und Wolfgang (Landau)
-
---------------------------------------------------------------------------------------------------------
-
 08.09.2023 - 17.09.2023
 
 Spätsommerfreizeit an der Ostsee in Polen (Pustkowo)
