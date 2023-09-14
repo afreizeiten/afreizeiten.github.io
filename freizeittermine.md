@@ -6,13 +6,13 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-26.12.2023 - 05.01.2024 - **Vorankündigung**
+26.12.2023 - 05.01.2024 
 
 Silvesterfreizeit in Rothenburg 
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
-**Teamer gesucht**, Interessenten bitte melden!
+[Silvesterfreizeit 23 24 in Rothenburg](Silvesterfreizeit_2023_Rothenburg_Endfassung(1).pdf)
 
 ---------------------------------------------------------------------------------------------------
 
