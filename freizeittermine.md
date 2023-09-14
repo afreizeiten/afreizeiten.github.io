@@ -12,7 +12,7 @@ Silvesterfreizeit in Rothenburg
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
-[Silvesterfreizeit 23 24 in Rothenburg](Silvesterfreizeit_2023_Rothenburg_Endfassung(1).pdf)
+[Silvesterfreizeit 23 24 in Rothenburg](pdf/Silvesterfreizeit_2023_Rothenburg_Endfassung(1).pdf)
 
 ---------------------------------------------------------------------------------------------------
 
