@@ -24,18 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-08.09.2023 - 17.09.2023
-
-Spätsommerfreizeit an der Ostsee in Polen (Pustkowo)
-
-![Polen](/images/Leiste_Polen.jpg)
-
-[Spätsommerfreizeit_2023 in Polen](pdf/EinladungPolen23.pdf)
-
-Freizeit von Traudi und Mechtild
-
---------------------------------------------------------------------------------------------------------
-
 12.10.2023 - 21.10.2023
 
 Herbstfreizeit in Bremen
