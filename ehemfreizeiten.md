@@ -169,6 +169,12 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 [Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
 
+### Polnische Ostsee-Freizeit
+
+![Polen](/images/Leiste_Polen.jpg)
+
+[Spätsommerfreizeit_2023 in Polen](pdf/EinladungPolen23.pdf)
+
 ----------------------------------------------------------------------------
 
 ## Freizeit von Silke und Dietrich
