@@ -135,7 +135,9 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 #### Herbst-Freizeiten in Bremen
 
-![Bremen](images/Leiste_Herbst_Bremen.jpg)
+![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
+
+[Herbstfreizeit_2023 Bremen](pdf/HerbstfreizeitinBremen.pdf)
 
 [Herbst-Freizeit Bremen 2022](/pdf/Einladung Herbst2022.pdf)
 
