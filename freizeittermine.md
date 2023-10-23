@@ -24,17 +24,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------
 
-12.10.2023 - 21.10.2023
-
-Herbstfreizeit in Bremen
-
-![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
-
-[Herbstfreizeit_2023 Bremen](pdf/HerbstfreizeitinBremen.pdf)
-
-Freizeit von Wolfgang und Mechtild
-
---------------------------------------------------------------------------------------------------------
 # 2024
 --------------------------------------------------------------------------------------------------------
 
