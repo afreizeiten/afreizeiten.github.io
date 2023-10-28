@@ -28,7 +28,7 @@ Minifreizeit vom 15. bis zum 17. Dezember 2023 in der Ilse-Eickhoff-Akademie
 
 ![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
 
-[Mini Freizeit Bremen Herbst 23](EinladungMini-Freizeit2023.pdf)   
+[Mini Freizeit Bremen Herbst 23](pdf/EinladungMini-Freizeit2023.pdf)   
 
 von Reiner und Mechtild
 
