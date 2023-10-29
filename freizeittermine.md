@@ -95,3 +95,15 @@ Freizeit von  Silke und Dietrich
 
 ---------------------------------------------------------------------------------------------------------
 
+09.10.2024 - 18.10.2024
+
+Herbstfreizeit in Bremen
+
+![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
+
+[Herbstfreizeit Bremen 2024](pdf/EinladungHerbst2024.pdf
+
+Freizeit von Wolfgang und Mechtild
+
+-----------------------------------------------------------------------------------------------------------
+
