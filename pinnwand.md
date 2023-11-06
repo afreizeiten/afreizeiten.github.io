@@ -13,18 +13,13 @@ Eure eMails sollten mindestens folgendes enthalten:
 5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
 ------------------------------------------------------------------------
-Liebe Freizeitler,
  
-kann mich jemand am 21.08. zur Allmannsrieder Freizeit mitnehmen? Und wieder zurück?
-Ich habe ein Auto, aber kann eventuell aus Gesundheitsgründen noch nicht selbst fahren, würde mein Auto zur Verfügung stellen.
+Rothenburg, dieses Jahr: Iris + ich suchen eine Mitfahrgelegenheit mit Kostenbeteiligung von Berlin, am 26.12.23 und zurück am 5.1.25. Danke. ArwithBartsch@web.de 030/68074511
  
-Ich wohne in Herzogenaurach bei Nürnberg.
+Danke
  
-Lieber Gruß!
- 
-Jutta
-indala@gmx.de
-01520 213  77 06
+Arwith Bartsch, Kohlfurter Str. 3,
+10999 Berlin, 030 68074511 (auch AB)
 
 -------------------------------------------------------------------------
 
