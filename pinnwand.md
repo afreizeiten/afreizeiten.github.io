@@ -14,10 +14,11 @@ Eure eMails sollten mindestens folgendes enthalten:
 
 ------------------------------------------------------------------------
  
-Rothenburg, dieses Jahr: Iris + ich suchen eine Mitfahrgelegenheit mit Kostenbeteiligung von Berlin, am 26.12.23 und zurück am 5.1.25. Danke. ArwithBartsch@web.de 030/68074511
- 
-Danke
- 
+### Rothenburg, dieses Jahr: 
+### Iris + ich suchen eine Mitfahrgelegenheit mit Kostenbeteiligung von Berlin, am 26.12.23 und zurück am 5.1.25. 
+Danke. 
+ArwithBartsch@web.de 030/68074511 
+Danke 
 Arwith Bartsch, Kohlfurter Str. 3,
 10999 Berlin, 030 68074511 (auch AB)
 
