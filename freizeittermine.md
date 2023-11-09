@@ -20,7 +20,7 @@ Silvesterfreizeit in Rothenburg
 
 ![Sommerfreizeit Grömitz Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@GR_1.jpeg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@GR_2.jpeg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@GR_3.jpeg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@GR_4.jpeg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@GR_5.jpeg,ox-388,oy-0,ow-94,oh-68/white.jpg)
 
-# Es werden noch Teamer gesucht!
+Es werden noch Teamer gesucht!
 
 --------------------------------------------------------------------------------------------------
 
