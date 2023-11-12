@@ -16,7 +16,7 @@ Silvesterfreizeit in Rothenburg
 
 ---------------------------------------------------------------------------------------------------
 
-08.06.2024 bis 20.06.2024 - **Vorandkündigung**
+08.06.2024 bis 20.06.2024 - **Vorankündigung**
 
 Sommerfreizeit 2024 in Grömitz
 
