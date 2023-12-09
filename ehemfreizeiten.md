@@ -53,7 +53,7 @@ Sommerfreizeit auf Usedom
 
 Sommerfreizeiten in Binz/Rügen
 
-![Leiste Binz neu2.png](/images/Leiste Binz neu2.png)
+![Leiste Binz](/images/Leiste Binz neu2.png)
 
 [Sommerfreizeit Binz 2019](/pdf/Binz_2019.pdf)
 
