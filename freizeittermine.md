@@ -121,6 +121,7 @@ Freizeit von Wolfgang und Mechtild
 ![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
 
 Jahreswechsel 2024/2025 im Naturfreundehaus Hannover
+
 Freizeit von Gerburg
 
 -----------------------------------------------------------------------------------------------------------
