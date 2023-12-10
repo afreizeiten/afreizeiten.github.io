@@ -116,4 +116,11 @@ Herbstfreizeit in Bremen
 Freizeit von Wolfgang und Mechtild
 
 -----------------------------------------------------------------------------------------------------------
+27.12.2024 – 04.01.2025 **VORANKÜNDIGUNG**
 
+![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
+
+Jahreswechsel 2024/2025 im Naturfreundehaus Hannover
+Freizeit von Gerburg
+
+-----------------------------------------------------------------------------------------------------------
