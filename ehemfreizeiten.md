@@ -167,6 +167,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 ### Minifreizeiten
 
+[Mini Freizeit Bremen Herbst 23](pdf/EinladungMini-Freizeit2023.pdf)   
+
 ![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
 
 [Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
