@@ -18,6 +18,8 @@ Winterfreizeit in Rothenburg ob der Tauber
 
 ![Rothenburg op der Tauber](/images/rothenburg.png)
 
+[Silvesterfreizeit 23 24 in Rothenburg](pdf/Silvesterfreizeit_2023_Rothenburg_Endfassung(1).pdf)
+
 [Winterfreiziet in Rothenburg ob der Tauber](pdf/Silvesterfreizeit_2022_Rothenburg_Endfassung_2.pdf)
 
 [Rothenburg 2021](/pdf/Silvester-Rothenburg-2021.pdf)
