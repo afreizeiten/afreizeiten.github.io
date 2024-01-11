@@ -93,7 +93,7 @@ Ostseefreizeit in Polen
 
 ![Polen](/images/Leiste_Polen.jpg)
 
-[Spätsommerfreizeit_2023 in Polen](pdf/EinladungPolen23.pdf)
+[Einladung Polenfreizeit 2024](pdf/EinladungPolen24.pdf)
 
 Freizeit von Mechtild und Küchenteam Birgit und Matze
 
