@@ -6,16 +6,6 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-26.12.2023 - 05.01.2024 
-
-Silvesterfreizeit in Rothenburg 
-
-![Rothenburg op der Tauber](/images/rothenburg.png)
-
-[Silvesterfreizeit 23 24 in Rothenburg](pdf/Silvesterfreizeit_2023_Rothenburg_Endfassung(1).pdf)
-
----------------------------------------------------------------------------------------------------
-
 08.06.2024 bis 20.06.2024 
 
 Sommerfreizeit 2024 in Grömitz
