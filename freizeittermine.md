@@ -51,18 +51,6 @@ Freizeit von Wolfgang und Mechtild
 
 --------------------------------------------------------------------------------------------------------
 
-19.05.2024 - 01.06.2024
-
-Pfingst-Freizeit im Orangenhain, Nähe Valencia
-
-![Valencia Spanien](/images/Valencia_Leiste.png)
-
-[Pfingsfreizeit_2024 Valencia](pdf/Pfingst.pdf)
-
-Freizeit von Monika (Bodensee)
-
----------------------------------------------------------------------------------------------------------
-
 15.07.2024 - 25.07.2024  
 
 Sommerfreizeit in Allmannsried
