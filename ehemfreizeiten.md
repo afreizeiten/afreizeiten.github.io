@@ -261,6 +261,10 @@ Sommerfreizeiten in Allmannsried
 
 ## Freizeit von Monika
 
+![Valencia Spanien](/images/Valencia_Leiste.png)
+
+[Pfingsfreizeit_2024 Valencia](pdf/Pfingst.pdf)
+
 Sommerfreizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
 
 ![Schaippach](/images/schaippach.jpeg)
