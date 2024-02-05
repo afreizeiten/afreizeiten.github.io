@@ -63,6 +63,18 @@ Freizeit von Wolfgang
 
 ---------------------------------------------------------------------------------------------------------
 
+24.08.2024 - 01.09.2024
+
+Frauenfreizeit in Pronsfeld
+
+![Pronsfeld](/images/BildleistePronsfeld.png)
+
+
+
+Freizeit von Irmgard
+
+-----------------------------------------------------------------------------------------------------------
+
 26.08.2024 - 06.09.2024
 
 Sommerfreizeit in Allmannsried
