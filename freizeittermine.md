@@ -116,7 +116,7 @@ Jahreswechsel 2024/2025 im Naturfreundehaus Hannover
 
 ![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
 
-[Silvesterfreizeit 2024 25 Gerburg](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
+[Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
 
 Freizeit von Gerburg
 
