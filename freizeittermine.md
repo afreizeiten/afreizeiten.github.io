@@ -121,3 +121,22 @@ Jahreswechsel 2024/2025 im Naturfreundehaus Hannover
 Freizeit von Gerburg
 
 -----------------------------------------------------------------------------------------------------------
+
+# 2025
+
+----------------------------------------------------------------------------------------------------------
+
+14.04.2025 - 26.04.2025
+
+Osterfreizeit in Bremen
+
+![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
+
+[Osterfreizeit_2024 Bremen](pdf/Osterfreizeit_2025 Blumenthal.pdf)
+
+Freizeit von Wolfgang und Mechtild
+
+-----------------------------------------------------------------------------------------------------------
+
+
+
