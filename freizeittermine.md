@@ -132,7 +132,7 @@ Osterfreizeit in Bremen
 
 ![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
 
-[Osterfreizeit_2024 Bremen](pdf/Osterfreizeit_2025 Blumenthal.pdf)
+[Osterfreizeit_2025 Bremen](pdf/Osterfreizeit_2025Blumenthal.pdf)
 
 Freizeit von Wolfgang und Mechtild
 
