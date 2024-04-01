@@ -69,7 +69,7 @@ Frauenfreizeit in Pronsfeld
 
 ![Pronsfeld](/images/BildleistePronsfeld.png)
 
-[Frauenfreizeit von Irmgard](pdf/2024_Frauen_A_Freizeit_Pronsfeld.pdf)
+[Frauenfreizeit von Irmgard](pdf/2024Frauen-A-Freizeit24Pronsfeld_Neue IBAN.pdf)
 
 Freizeit von Irmgard
 
