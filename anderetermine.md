@@ -55,6 +55,12 @@ Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph
 
 -------------------------------------------------------------------------------------------------------
 
+### 12-Schritte-Programm für Coabhängige basierend auf dem Blauen Buch der Anonymen Alkoholiker.
+
+Www.rc12schritte.de 
+
+-------------------------------------------------------------------------------------------------------
+
 ### Trotz sorgfältiger Prüfung kann der Verein keine Haftung für Inhalte externer Links übernehmen.
 
 
