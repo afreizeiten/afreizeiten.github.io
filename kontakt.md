@@ -15,10 +15,10 @@ Die Erreichbarkeit des Freizeitwerkes ist
 
 # Impressum
 
-> Selbsthilfe-Freizeitwerk e.V.<br>
-> c/o Anne Schulz<br>
-> Wartbergstraße 43<br>
-> 74076 Heilbronn
+> Selbsthilfe Freizeitwerk e.V.
+> c/o Eva Heymann
+> Engelthaler Str. 76
+> 60435 Frankfurt
 
 
 Kontakt zu dieser Seite
