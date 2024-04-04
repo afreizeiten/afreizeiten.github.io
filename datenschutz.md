@@ -43,7 +43,6 @@ Dieser Dienst dient uns dazu, eigene Bilder zu optimieren und in der Größe zu 
 * Der Zeitpunkt der Anfrage.
 
 Rechtsgrundlage für die Benutzung von Imagekit ist lt. DSGVO nach Art 6 Abs. 1 lit. f das berechtigtes Interesse.
- 
-[Datenschutzerklärung von ImageKit](https://imagekit.io/privacy-policy-new/)
+
 
 
