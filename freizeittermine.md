@@ -27,18 +27,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 # 2024
 --------------------------------------------------------------------------------------------------------
 
-28.03.2024 - 06.04.2024
-
-Osterfreizeit in Bremen
-
-![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
-
-[Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
-
-Freizeit von Wolfgang und Mechtild
-
---------------------------------------------------------------------------------------------------------
-
 15.07.2024 - 25.07.2024  
 
 Sommerfreizeit in Allmannsried
