@@ -77,7 +77,9 @@ Freizeit von  Silke und Dietrich
 
 06.09.2024 - 15.09.2024
 
-Ostseefreizeit in Polen
+# Leider schon voll!
+
+Ostseefreizeit in Polen 
 
 ![Polen](/images/Leiste_Polen.jpg)
 
