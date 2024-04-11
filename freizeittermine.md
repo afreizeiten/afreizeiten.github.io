@@ -67,7 +67,7 @@ Freizeit von  Silke und Dietrich
 
 Ostseefreizeit in Polen 
 
-# Leider schon voll!
+## Leider schon voll!
 
 ![Polen](/images/Leiste_Polen.jpg)
 
