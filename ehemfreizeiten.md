@@ -123,6 +123,8 @@ Sommerfreizeiten in Grömitz/Ostsee
 
 #### Osterfreizeiten in Bremen
 
+[Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
+
 ![Bremen](images/LeisteOsternBremen.jpg)
 
 [Ostern 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
