@@ -23,7 +23,7 @@ Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
 
 ![Freusburg Sieg im Westerwald](/images/Freusburg.png)
 
-Freizeit vom Selbsthilfe Freizeitwerk
+Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 ### Es werden Teamer gesucht!!!
 
