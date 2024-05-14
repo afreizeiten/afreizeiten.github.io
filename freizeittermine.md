@@ -17,7 +17,7 @@ Sommerfreizeit 2024 in Grömitz
 --------------------------------------------------------------------------------------------------
 
 26.12.2024 bis 04.01.2025 
-### Vorankündigung
+## Vorankündigung
 
 Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
 
@@ -25,7 +25,7 @@ Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
 
 Freizeit vom Selbsthilfe Freizeitwerk
 
-### Es werden Teamer gesucht!!!
+## Es werden Teamer gesucht!!!
 
 --------------------------------------------------------------------------------------------------
 
