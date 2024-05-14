@@ -21,7 +21,7 @@ Sommerfreizeit 2024 in Grömitz
 
 Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
 
-![Freusburg Sieg im Westerwald](/images/Bildleiste Freusburg.png)
+![Freusburg Sieg im Westerwald](/images/Freusburg.png)
 
 Freizeit vom Selbsthilfe Freizeitwerk
 
