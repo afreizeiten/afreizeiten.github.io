@@ -41,11 +41,19 @@ Sommerfreizeit Grömitz 2022
 
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
 
+![grömitz](/images/groemitz.jpeg)
+
 [Sommerfreizeit Grömitz 2024](pdf/Sommerfreizeit2024Gro_mitz_Endfassung.pdf)
 
 [Sommerfreizeit in Grömitz](pdf/2023Gro_mitzV2_Klaus_20221204.pdf)
 
-[Sommerfreizeit Grömitz](pdf/2022 Grömitz Endfassung.pdf)      
+[Sommerfreizeit Grömitz](pdf/2022 Grömitz Endfassung.pdf)   
+
+[2017 Sommerfreizeit Grömitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
+
+[2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
+
+-------------------------------------------------------------------------
 
 Sommerfreizeit auf Usedom
 
@@ -65,19 +73,9 @@ Sommerfreizeiten in Binz/Rügen
 
 ----------------------------------------------------------------------------
 
-Sommerfreizeiten in Grömitz/Ostsee
-
-![grömitz](/images/groemitz.jpeg)
-
-[2017 Sommerfreizeit Grömitz.pdf](/pdf/2017_Sommerfreizeit Groemitz.pdf)
-
-[2016 Sommerfreizeit Grömitz.pdf](/pdf/Grömitz2016.pdf)
-
-----------------------------------------------------------------------------
 12-Schritte-Wanderung 2018 in Arnsberg/Sauerland
 
 [12-Schritte-Wanderung 2018.pdf](/pdf/12-Schritte-Wanderung 2018.pdf)
-
 
 12-Schritte-Wanderung 2017 in Bad Herrenalb
 
