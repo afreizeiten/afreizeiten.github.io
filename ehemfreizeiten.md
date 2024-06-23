@@ -37,7 +37,7 @@ Winterfreizeiten in Blankenheim
 [Blankenheim 2016.pdf](/pdf/2016_Blankenheim.pdf)
 
 ----------------------------------------------------------------------------
-Sommerfreizeit Grömitz 2022
+Sommerfreizeit Grömitz 
 
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
 
