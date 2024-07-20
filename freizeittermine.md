@@ -6,16 +6,6 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-08.06.2024 bis 20.06.2024 
-
-Sommerfreizeit 2024 in Grömitz
-
-![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
-
-[Sommerfreizeit Grömitz 2024](pdf/Sommerfreizeit2024Gro_mitz_Endfassung.pdf)
-
---------------------------------------------------------------------------------------------------
-
 26.12.2024 bis 04.01.2025 
 
 Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
