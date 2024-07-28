@@ -101,6 +101,16 @@ Herbstfreizeit in Bremen
 Freizeit von Wolfgang und Mechtild
 
 -----------------------------------------------------------------------------------------------------------
+
+01.11.2024 bis 03.11.2024
+
+Minifreizeit in Bremen
+
+![Bremen](/images/Leiste_Minden.jpg)
+
+
+
+1------------------------------------------------------------------------------------------------------------
 27.12.2024 – 04.01.2025 
 
 Jahreswechsel 2024/2025 im Naturfreundehaus Hannover
