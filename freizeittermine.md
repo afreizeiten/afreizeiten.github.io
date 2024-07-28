@@ -108,7 +108,7 @@ Minifreizeit in Bremen
 
 ![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
 
-[Herbstfreizeit Bremen 2024](pdf/EinladungHerbst2024.pdf)
+[Minifreizeit Bremen 2024](pdf/EinladungMini-Freizeit.pdf)
 
 Freizeit von Wolfgang und Mechtild
 
