@@ -110,7 +110,7 @@ Minifreizeit in Bremen
 
 [Minifreizeit Bremen 2024](pdf/EinladungMini-Freizeit.pdf)
 
-Freizeit von Wolfgang und Mechtild
+Freizeit von Reiner und Mechtild
 
 ------------------------------------------------------------------------------------------------------------
 
