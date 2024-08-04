@@ -142,5 +142,15 @@ Freizeit von Wolfgang und Mechtild
 
 -----------------------------------------------------------------------------------------------------------
 
+21.7 bis 31.7.2025  
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Sommerfreizeit Allamnnsried 2024](pdf/A-Freizeit2021.pdf)
+
+Freizeit von Wolfgang
+
 
 
