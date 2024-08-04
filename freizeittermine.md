@@ -148,7 +148,7 @@ Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Sommerfreizeit Allamnnsried 2024](pdf/A-Freizeit2025.pdf)
+[Sommerfreizeit Allmannsried 2025](pdf/A-Freizeit2025.pdf)
 
 Freizeit von Wolfgang
 
