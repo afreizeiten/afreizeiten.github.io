@@ -207,6 +207,8 @@ Sommerfreizeiten in Binz/Rügen
 
 ## Freizeiten von Wolfgang
 
+[Sommerfreizeit Allamnnsried 2024](pdf/A-Freizeit2021.pdf)
+
 [Sommer 2023 in Allmannsried Wolfgang](pdf/A-Freizeit 2023 (1).pdf)
 
 ![allmannsried](/images/allmansried.jpeg)
