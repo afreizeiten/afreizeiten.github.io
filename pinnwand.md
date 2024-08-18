@@ -21,7 +21,7 @@ Ich starte in Herzogenaurach und fahre über Neustadt und Bad Windsheim auf die 
  
 Zusteigen möglich, wenn es nicht zu weit entfernt von meiner Route ist, nach persönlicher Absprache.
  
-handy: 
+Handy: 
 01520 213 7706
  
  
