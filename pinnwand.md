@@ -13,7 +13,24 @@ Eure eMails sollten mindestens folgendes enthalten:
 5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
 ------------------------------------------------------------------------
+
+Hallo ,
+ich biete eine Mitfahrgelegenheit nach Allmannsried an, am 26.08.24 und zurück am 06.09.
  
+Ich starte in Herzogenaurach und fahre über Neustadt und Bad Windsheim auf die A7.
+ 
+Zusteigen möglich, wenn es nicht zu weit entfernt von meiner Route ist, nach persönlicher Absprache.
+ 
+handy: 
+01520 213 7706
+ 
+ 
+Lieber Gruß!
+ 
+Jutta 
+
+----------------------------------------------------------------------------
+
 Beiträge<br>
 ...bitte an mich schicken, ich stells dann ein.
 <webmaster@a-freizeiten.de>
