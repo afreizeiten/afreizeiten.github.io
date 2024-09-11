@@ -191,6 +191,8 @@ Sommerfreizeiten in Binz/Rügen
 
 ![allmannsried](/images/allmansried.jpeg)
 
+[Sommer 2024 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit_2024.pdf)
+
 [Sommer 2023 in Allmannsried Silke und Dietrich](pdf/AusschreibungAllmannsried2023_2.pdf)
 
 [Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
