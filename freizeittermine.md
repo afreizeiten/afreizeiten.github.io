@@ -40,18 +40,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 # 2024
 --------------------------------------------------------------------------------------------------------
 
-26.08.2024 - 06.09.2024
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Sommer 2024 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit_2024.pdf)
-
-Freizeit von  Silke und Dietrich
-
----------------------------------------------------------------------------------------------------------
-
 06.09.2024 - 15.09.2024
 
 Ostseefreizeit in Polen 
