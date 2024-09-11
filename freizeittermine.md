@@ -106,6 +106,18 @@ Freizeit von Gerburg
 
 ----------------------------------------------------------------------------------------------------------
 
+14.04.2025 - 21.04.2025
+
+Osterfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_24.pdf)   
+
+Freizeit von Silke und Dietrich
+
+----------------------------------------------------------------------------------------------------------
+
 17.04.2025 - 26.04.2025
 
 Osterfreizeit in Bremen
