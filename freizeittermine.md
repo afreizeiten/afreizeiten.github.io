@@ -40,18 +40,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 # 2024
 --------------------------------------------------------------------------------------------------------
 
-24.08.2024 - 01.09.2024
-
-Frauenfreizeit in Pronsfeld
-
-![Pronsfeld](/images/BildleistePronsfeld.png)
-
-[Frauenfreizeit von Irmgard](pdf/2024AFreizeitFlyerPDF.pdf)
-
-Freizeit von Irmgard
-
------------------------------------------------------------------------------------------------------------
-
 26.08.2024 - 06.09.2024
 
 Sommerfreizeit in Allmannsried
@@ -142,5 +130,13 @@ Freizeit von Wolfgang
 
 -----------------------------------------------------------------------------------------------------------
 
+13.08.2025 - 23.08.2025
 
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Sommer 2025 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit_2024.pdf)
+
+Freizeit von  Silke und Dietrich
 
