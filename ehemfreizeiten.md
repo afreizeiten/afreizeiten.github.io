@@ -298,3 +298,11 @@ Toskana-Freizeit
 [29. Bernrieder Schritte-Seminar 2019.pdf](/pdf/Bernried 2019.pdf)
 
 ----------------------------------------------------------------------------
+
+## FrauenFreizeit von Irmgard
+
+![Pronsfeld](/images/BildleistePronsfeld.png)
+
+[Frauenfreizeit von Irmgard](pdf/2024AFreizeitFlyerPDF.pdf)
+
+-----------------------------------------------------------------------------
