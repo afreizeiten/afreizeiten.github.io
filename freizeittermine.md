@@ -40,20 +40,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 # 2024
 --------------------------------------------------------------------------------------------------------
 
-06.09.2024 - 15.09.2024
-
-Ostseefreizeit in Polen 
-
-Leider schon voll!
-
-![Polen](/images/Leiste_Polen.jpg)
-
-[Einladung Polenfreizeit 2024](pdf/EinladungPolen24.pdf)
-
-Freizeit von Mechtild und Küchenteam Birgit und Matze
-
--------------------------------------------------------------------------------------------------------
-
 09.10.2024 - 18.10.2024
 
 Herbstfreizeit in Bremen
