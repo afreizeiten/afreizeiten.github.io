@@ -181,6 +181,8 @@ Sommerfreizeiten in Binz/Rügen
 
 ![Polen](/images/Leiste_Polen.jpg)
 
+[Einladung Polenfreizeit 2024](pdf/EinladungPolen24.pdf)
+
 [Spätsommerfreizeit_2023 in Polen](pdf/EinladungPolen23.pdf)
 
 ----------------------------------------------------------------------------
