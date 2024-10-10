@@ -20,7 +20,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 24.06.2025 bis 06.07.2025 
 
-Die Sommerfreizeit 2025 findet wieder in Grömitz statt. 
+Die Sommerfreizeit 2025 in Grömitz  
 
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
 
