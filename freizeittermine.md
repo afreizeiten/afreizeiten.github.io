@@ -41,18 +41,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 # 2024
 --------------------------------------------------------------------------------------------------------
 
-09.10.2024 - 18.10.2024
-
-Herbstfreizeit in Bremen
-
-![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
-
-[Herbstfreizeit Bremen 2024](pdf/EinladungHerbst2024.pdf)
-
-Freizeit von Wolfgang und Mechtild
-
------------------------------------------------------------------------------------------------------------
-
 01.11.2024 - 03.11.2024
 
 Minifreizeit in Bremen
