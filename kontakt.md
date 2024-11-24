@@ -17,9 +17,8 @@ Die Erreichbarkeit des Freizeitwerkes ist
 
 > Selbsthilfe Freizeitwerk e.V.
 > c/o Eva Heymann
-> Engelthaler Str. 76
-> 60435 Frankfurt
-
+> Im Niederfeld 8
+> 60437 Frankfurt am Main
 
 Kontakt zu dieser Seite
 
