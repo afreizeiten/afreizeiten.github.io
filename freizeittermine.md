@@ -69,7 +69,9 @@ Freizeit von Gerburg
 
 ----------------------------------------------------------------------------------------------------------
 
-Minifreizeit vom 07.02.2025 - 09.02.2025 in der Ilse-Eickhoff-Akademie
+07.02.2025 - 09.02.2025 
+
+A-Wochenende in Bremen-Blumenthal
 
 ![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
 
