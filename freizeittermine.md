@@ -73,7 +73,7 @@ Freizeit von Gerburg
 
 A-Wochenende in Bremen-Blumenthal
 
-![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
+![Bremen](/images/Leiste_Mini_Februar.jpg)
 
 [Mini Freizeit Bremen Februar 25](pdf/Mini-FreizeitBremenBlumenthal2025.pdf)   
 
