@@ -69,6 +69,16 @@ Freizeit von Gerburg
 
 ----------------------------------------------------------------------------------------------------------
 
+Minifreizeit vom 07.02.2025 - 09.02.2025 in der Ilse-Eickhoff-Akademie
+
+![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
+
+[Mini Freizeit Bremen Februar 25](pdf/Mini-FreizeitBremenBlumenthal2025.pdf)   
+
+von Traudi und Mechtild
+
+----------------------------------------------------------------------------------------------------------
+
 29.03.2025 - 05.04.2025
 
 Frauenfreizeit in Pronsfeld
