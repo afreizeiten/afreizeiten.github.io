@@ -173,6 +173,8 @@ Sommerfreizeiten in Binz/Rügen
 
 ### Minifreizeiten
 
+[Minifreizeit Bremen 2024](pdf/EinladungMini-Freizeit.pdf)
+
 [Mini Freizeit Bremen Herbst 23](pdf/EinladungMini-Freizeit2023.pdf)   
 
 ![BremenOsterfreizeit](/images/Leiste_Minden.jpg)
