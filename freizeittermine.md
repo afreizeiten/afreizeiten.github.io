@@ -117,6 +117,18 @@ Freizeit von Wolfgang und Mechtild
 
 -----------------------------------------------------------------------------------------------------------
 
+16.05.2025 - 18.05.2025
+
+A-Wochenende in Bremen-Blumenthal
+
+![BremenOsterfreizeit](/images/Leiste_Ostern_neuab10.3.23.jpg))
+
+[Minifreizeit Bremen 2024](pdf/Mini-FreizeitBremenBlumenthal2025.pdf)
+
+Freizeit von Reiner und Mechtild
+
+------------------------------------------------------------------------------------------------------------
+
 21.07.2025 - 31.07.2025  
 
 Sommerfreizeit in Allmannsried
