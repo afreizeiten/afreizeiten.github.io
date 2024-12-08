@@ -151,3 +151,25 @@ Sommerfreizeit in Allmannsried
 
 Freizeit von  Silke und Dietrich
 
+-------------------------------------------------------------------------------------------------------------
+
+
+05.09.2025 - 14.09.2025
+
+Ostseefreizeit in Pustkowo/Polen 
+
+![Polen](/images/Leiste_Polen.jpg)
+
+[Einladung Polenfreizeit 2024](pdf/Ostseefreizeit2025.pdf)
+
+Freizeit von Mechtild
+
+-------------------------------------------------------------------------------------------------------------
+
+
+
+
+
+
+
+
