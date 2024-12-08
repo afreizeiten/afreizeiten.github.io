@@ -75,7 +75,7 @@ A-Wochenende in Bremen-Blumenthal
 
 ![Bremen](/images/Leiste_Mini_Februar.jpg)
 
-[Mini Freizeit Bremen Februar 25](pdf/Mini-FreizeitBremenBlumenthal2025.pdf)   
+[Mini Freizeit Bremen Februar 25](pdf/Mini-FreizeitBremen2025.pdf)   
 
 von Traudi und Mechtild
 
