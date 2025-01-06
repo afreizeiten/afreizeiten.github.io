@@ -6,18 +6,6 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-26.12.2024 bis 04.01.2025 
-
-Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
-
-![Freusburg Sieg im Westerwald](/images/Freusburg.png)
-
-[Silvesterfreizeit 24_25 Freusburg](pdf/Silvester-Freizeit2024_25inFreusburg.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
---------------------------------------------------------------------------------------------------
-
 24.06.2025 bis 06.07.2025 
 
 Die Sommerfreizeit 2025 in Grömitz  
@@ -37,37 +25,6 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
 ------------------------------------------------------------------------------------------------------
-
-# 2024
---------------------------------------------------------------------------------------------------------
-
-01.11.2024 - 03.11.2024
-
-Minifreizeit in Bremen
-
-![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
-
-[Minifreizeit Bremen 2024](pdf/EinladungMini-Freizeit.pdf)
-
-Freizeit von Reiner und Mechtild
-
-------------------------------------------------------------------------------------------------------------
-
-27.12.2024 – 04.01.2025 
-
-Jahreswechsel 2024/2025 im Naturfreundehaus Hannover
-
-![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
-
-[Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
-
-Freizeit von Gerburg
-
------------------------------------------------------------------------------------------------------------
-
-# 2025
-
-----------------------------------------------------------------------------------------------------------
 
 07.02.2025 - 09.02.2025 
 
