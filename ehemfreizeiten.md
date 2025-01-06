@@ -314,3 +314,11 @@ Toskana-Freizeit
 [Frauenfreizeit von Irmgard](pdf/2024AFreizeitFlyerPDF.pdf)
 
 -----------------------------------------------------------------------------
+
+## Freizeiten von Gerburg
+
+![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
+
+[Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
+
+---------------------------------------------------------------------------------
