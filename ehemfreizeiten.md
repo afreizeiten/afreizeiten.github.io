@@ -95,8 +95,6 @@ Sommerfreizeiten in Binz/Rügen
 
 ---------------------------------------------------------------------------
 
-
-
 ## Freizeiten von Mechtild
 
 #### Osterfreizeiten in Bremen
@@ -223,6 +221,42 @@ Sommerfreizeiten in Allmannsried
 
 ----------------------------------------------------------------------------
 
+## FrauenFreizeit von Irmgard
+
+![Pronsfeld](/images/BildleistePronsfeld.png)
+
+[Frauenfreizeit von Irmgard](pdf/2024AFreizeitFlyerPDF.pdf)
+
+-----------------------------------------------------------------------------
+
+## Freizeiten von Gerburg
+
+![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
+
+[Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
+
+---------------------------------------------------------------------------------
+
+## Freizeit von Monika
+
+![Valencia Spanien](/images/Valencia_Leiste.png)
+
+[Pfingsfreizeit_2024 Valencia](pdf/Pfingst.pdf)
+
+Sommerfreizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
+
+![Schaippach](/images/schaippach.jpeg)
+
+[Sommer 2022 in Schaippach](pdf/Schaippach Sommer 22.pdf)
+
+Toskana-Freizeit 
+
+![Herbstfreizeit Toskana Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@TO_1.jpg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@TO_2.jpg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@TO_3.jpg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@TO_4.jpg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@TO_5.png,ox-388,oy-0,ow-94,oh-68/white.jpg)
+
+[Toskana-Freizeit](pdf/Toskana.pdf)
+
+--------------------------------------------------------------------------------
+
 ## Freizeiten von Gerti
 
 ![Sylt](/images/leiste-sylt-2.png)
@@ -249,27 +283,7 @@ Sommerfreizeiten in Allmannsried
 
 [Anmeldung Türkei 2019.pdf](/pdf/Türkei Urlaub 2019 März.pdf)
 
-----------------------------------------------------------------------------
-
-## Freizeit von Monika
-
-![Valencia Spanien](/images/Valencia_Leiste.png)
-
-[Pfingsfreizeit_2024 Valencia](pdf/Pfingst.pdf)
-
-Sommerfreizeit in der Schaippach-Mühle (im Anschluss an das EKS-DLT)
-
-![Schaippach](/images/schaippach.jpeg)
-
-[Sommer 2022 in Schaippach](pdf/Schaippach Sommer 22.pdf)
-
-Toskana-Freizeit 
-
-![Herbstfreizeit Toskana Bilder](https://ik.imagekit.io/zcrl68n9dky/tr:oi-leisten@@TO_1.jpg,ox-0,oy-0,ow-94,oh-68:oi-leisten@@TO_2.jpg,ox-97,oy-0,ow-94,oh-68:oi-leisten@@TO_3.jpg,ox-194,oy-0,ow-94,oh-68:oi-leisten@@TO_4.jpg,ox-291,oy-0,ow-94,oh-68:oi-leisten@@TO_5.png,ox-388,oy-0,ow-94,oh-68/white.jpg)
-
-[Toskana-Freizeit](pdf/Toskana.pdf)
-
-----------------------------------------------------------------------------
+---------------------------------------------------------------------------------
 
 ## Freizeit von Elisabeth und Mati
 
@@ -285,29 +299,11 @@ Toskana-Freizeit
 
 ----------------------------------------------------------------------------
 
-## FrauenFreizeit von Irmgard
-
-![Pronsfeld](/images/BildleistePronsfeld.png)
-
-[Frauenfreizeit von Irmgard](pdf/2024AFreizeitFlyerPDF.pdf)
-
------------------------------------------------------------------------------
-
-## Freizeiten von Gerburg
-
-![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
-
-[Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
-
----------------------------------------------------------------------------------
-
 ## Freizeiten von Erich
 
 #### Weihnachten in der Schaippachmühle
 
 ![Schaippach](/images/schaippach.jpeg)
-
------------------------------------------------------------------------------------------------
 
 [Weihnachten 2022 in Schaippach](pdf/Einladung_Weihnachtsfreizeit_Schaippach_2022.pdf)
 
