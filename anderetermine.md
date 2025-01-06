@@ -40,13 +40,6 @@ Infos unter 01782090444 (Monika)
 
 -------------------------------------------------------------------------------------------------
 
-### Kuschelmeeting Köln (für alle A-Gruppen-Angehörigen)
-Jeden 2. und 4. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) das K-Meeting in Köln Nippes statt
-
-Kontakt / Auskunft über Markus, Tel.:015906169335
-
---------------------------------------------------------------------------------------------------
-
 ### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
