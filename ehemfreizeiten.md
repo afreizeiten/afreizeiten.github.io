@@ -14,11 +14,15 @@ Virtuelle Weihnachtsfreizeit
 
 [Virtuelle Winterfreizeit 2020](pdf/Endfassung-Virtuelle-Freizeit.pdf)
 
+------------------------------------------------------------------------------
+
 Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
 
 ![Freusburg Sieg im Westerwald](/images/Freusburg.png)
 
 [Silvesterfreizeit 24_25 Freusburg](pdf/Silvester-Freizeit2024_25inFreusburg.pdf)
+
+--------------------------------------------------------------------------------
 
 Winterfreizeit in Rothenburg ob der Tauber 
 
@@ -33,6 +37,8 @@ Winterfreizeit in Rothenburg ob der Tauber
 [Rothenburg 2019](pdf/Silvesterfreizeit Rothenburg 2019 3.pdf)
 
 [Rothenburg 2018](pdf/2018Rothenburg.pdf)
+
+-------------------------------------------------------------------------------
 
 Winterfreizeiten in Blankenheim
 
