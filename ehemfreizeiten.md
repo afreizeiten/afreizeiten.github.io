@@ -49,6 +49,7 @@ Winterfreizeiten in Blankenheim
 [Blankenheim 2016.pdf](/pdf/2016_Blankenheim.pdf)
 
 ----------------------------------------------------------------------------
+
 Sommerfreizeit Grömitz 
 
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
@@ -97,7 +98,7 @@ Sommerfreizeiten in Binz/Rügen
 
 ## Freizeiten von Mechtild
 
-#### Osterfreizeiten in Bremen
+Osterfreizeiten in Bremen
 
 [Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
 
@@ -113,7 +114,7 @@ Sommerfreizeiten in Binz/Rügen
 
 [Ostern 2016 in Bremen Blumenthal](pdf/BremenOstern2016.pdf)
 
-#### Herbst-Freizeiten in Bremen
+Herbst-Freizeiten in Bremen
 
 ![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
 
@@ -135,11 +136,11 @@ Sommerfreizeiten in Binz/Rügen
 
 [Herbst-Freizeit Bremen 2016.pdf](pdf/2016 Herbst in der Bremer Schweiz.pdf)
 
-#### Winterfreizeiten 
+Winterfreizeiten 
 
 [Winterfreizeit in Bremen](pdf/WeihnachtenmitA-FreundInnen.pdf.pdf)
 
-#### Freizeiten in Westfriesland
+Freizeiten in Westfriesland
 
 ![Friesland](images/Leiste_Friesland.jpg)
 
@@ -147,7 +148,7 @@ Sommerfreizeiten in Binz/Rügen
 
 [Westfriesland 2017.pdf](pdf/2017 Westfriesland_Holland.pdf)
 
-### Minifreizeiten
+Minifreizeiten
 
 [Minifreizeit Bremen 2024](pdf/EinladungMini-Freizeit.pdf)
 
@@ -157,7 +158,7 @@ Sommerfreizeiten in Binz/Rügen
 
 [Minifreizeit in  Minden](pdf/MinifreizeitMinden.pdf)
 
-### Polnische Ostsee-Freizeit
+Polnische Ostsee-Freizeit
 
 ![Polen](/images/Leiste_Polen.jpg)
 
@@ -169,7 +170,7 @@ Sommerfreizeiten in Binz/Rügen
 
 ## Freizeit von Silke und Dietrich
 
-#### Sommerfreizeiten
+Sommerfreizeiten
 
 ![allmannsried](/images/allmansried.jpeg)
 
@@ -179,7 +180,7 @@ Sommerfreizeiten in Binz/Rügen
 
 [Sommer 2022 in Allmannsried](pdf/Ausschreibung Allmannsried 2022 – aktuell.pdf)
 
-#### Osterfreizeiten
+Osterfreizeiten
 
 ![allmannsried](/images/allmansried.jpeg)
 
@@ -191,13 +192,13 @@ Sommerfreizeiten in Binz/Rügen
 
 ## Freizeiten von Wolfgang
 
+Sommerfreizeiten in Allmannsried
+
 ![allmannsried](/images/allmansried.jpeg)
 
 [Sommerfreizeit Allamnnsried 2024](pdf/A-Freizeit2021.pdf)
 
 [Sommer 2023 in Allmannsried Wolfgang](pdf/A-Freizeit 2023 (1).pdf)
-
-Sommerfreizeiten in Allmannsried
 
 [2021 Sommerfreizeit Allmannsried 2.pdf](/pdf/A-Freizeit Sommer 2021 vom 23.8. bis 1.9. (1).pdf)
 
