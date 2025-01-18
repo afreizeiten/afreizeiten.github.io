@@ -78,7 +78,7 @@ Freizeit von Wolfgang und Mechtild
 
 A-Wochenende in Bremen-Blumenthal
 
-![BremenMinifreizeit](/images/Leiste_Mini_Mai.jpg))
+![BremenMinifreizeit](/images/Leiste_Mini_Mai (1).jpg)
 
 [Minifreizeit Bremen 2024](pdf/Mini-FreizeitBremenBlumenthal2025.pdf)
 
