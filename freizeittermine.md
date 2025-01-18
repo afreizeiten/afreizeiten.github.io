@@ -123,6 +123,24 @@ Freizeit von Mechtild
 
 -------------------------------------------------------------------------------------------------------------
 
+03.10.2025 - 12.10.2025
+
+Herbstfreizeit in Bremen
+
+![Bremen](/images/Leiste_Herbst_neu.jpg)
+
+[Herbstfreizeit Bremen 2024](pdf/EinladungHerbst2024.pdf)
+
+Freizeit von Wolfgang und Mechtild
+
+
+
+
+
+
+
+
+
 
 
 
