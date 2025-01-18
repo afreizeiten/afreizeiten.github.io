@@ -129,11 +129,11 @@ Herbstfreizeit in Bremen
 
 ![Bremen](/images/Leiste_Herbst_neu.jpg)
 
-[Herbstfreizeit Bremen 2024](pdf/EinladungHerbst2024.pdf)
+[Herbstfreizeit Bremen 2024](pdf/Herbstfreizeit_Bremen_2025.pdf)
 
 Freizeit von Wolfgang und Mechtild
 
-
+-------------------------------------------------------------------------------------------------------------
 
 
 
