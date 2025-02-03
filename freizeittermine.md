@@ -24,6 +24,8 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 Silvesterfreizeit auf der Freusburg/Kirchen im Westerwald
 
+![Winterfreizeit Freusburg Bilder](/images/Freusburg.png)
+
 Wir wohnen in einem über tausend Jahre alten Kulturdenkmal und erleben das Mittelalter hautnah
 In zahlreichen EZ, DZ und MBZ mit zeitgemäßem Komfort (Flyer folgt). 
 Hier ein kleiner Vorgeschmack: https://www.youtube.com/watch?v=j01IX1rRtRg (Quelle: Jugendherberge.de - Youtube)
