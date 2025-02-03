@@ -30,7 +30,7 @@ Wir wohnen in einem über tausend Jahre alten Kulturdenkmal und erleben das Mitt
 In zahlreichen EZ, DZ und MBZ mit zeitgemäßem Komfort (Flyer folgt). 
 Hier ein kleiner Vorgeschmack: https://www.youtube.com/watch?v=j01IX1rRtRg (Quelle: Jugendherberge.de - Youtube)
 
-## Es werden Teamer gesucht
+### Es werden Teamer gesucht
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
