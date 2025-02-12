@@ -12,7 +12,7 @@ Die Sommerfreizeit 2025 in Grömitz
 
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
 
-[Sommerfreizeit Grömitz 2025](pdf/EinladungSommerfreizeitGrömitz2025.pdf)
+[Sommerfreizeit Grömitz 2025](pdf/Einladung_Sommerfreizeit_Grömitz_2025_2.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
