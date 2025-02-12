@@ -13,6 +13,8 @@ Die Sommerfreizeit 2025 in Grömitz
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
 
 [Sommerfreizeit Grömitz 2025](pdf/Einladung_Sommerfreizeit_Grömitz_2025_2.pdf)
+Neu ist, dass die TFZ2 vom 30.06.25 bis 06.07.25 ist, statt vom 01.07.25 bis 06.07.25. 
+An den Kosten hat sich nichts geändert.
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
