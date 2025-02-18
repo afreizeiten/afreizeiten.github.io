@@ -107,6 +107,18 @@ Freizeit von Reiner und Mechtild
 
 ------------------------------------------------------------------------------------------------------------
 
+07.07.2025 - 17.07.2025
+
+35.Bernrieder Freizeit
+
+![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
+
+
+
+Freizeit von Mati, Dorothee und Sabine
+
+------------------------------------------------------------------------------------------------------------
+
 21.07.2025 - 31.07.2025  
 
 Sommerfreizeit in Allmannsried
