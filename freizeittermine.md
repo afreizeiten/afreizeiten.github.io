@@ -109,7 +109,7 @@ Freizeit von Reiner und Mechtild
 
 07.07.2025 - 17.07.2025
 
-Bernrieder Freizeit
+35.Bernrieder Freizeit
 
 ![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
 
