@@ -113,7 +113,7 @@ Freizeit von Reiner und Mechtild
 
 ![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
 
-
+[Bernrieder Schritte Freizeit 2025](pdf/Bernried25-25.02.14-2Flyer07.07-17.pdf)
 
 Freizeit von Mati, Dorothee und Sabine
 
