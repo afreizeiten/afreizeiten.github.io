@@ -47,18 +47,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-07.02.2025 - 09.02.2025 
-
-A-Wochenende in Bremen-Blumenthal
-
-![Bremen](/images/Leiste_Mini_Februar.jpg)
-
-[Mini Freizeit Bremen Februar 25](pdf/Mini-FreizeitBremen2025.pdf)   
-
-von Traudi und Mechtild
-
-----------------------------------------------------------------------------------------------------------
-
 29.03.2025 - 05.04.2025
 
 Frauenfreizeit in Pronsfeld
@@ -143,6 +131,7 @@ Freizeit von  Silke und Dietrich
 
 -------------------------------------------------------------------------------------------------------------
 
+LEIDER SCHON VOLL 
 
 05.09.2025 - 14.09.2025
 
