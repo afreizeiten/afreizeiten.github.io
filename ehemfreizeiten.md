@@ -150,6 +150,8 @@ Freizeiten in Westfriesland
 
 Minifreizeiten
 
+[Mini Freizeit Bremen Februar 25](pdf/Mini-FreizeitBremen2025.pdf)   
+
 [Minifreizeit Bremen 2024](pdf/EinladungMini-Freizeit.pdf)
 
 [Mini Freizeit Bremen Herbst 23](pdf/EinladungMini-Freizeit2023.pdf)   
