@@ -157,8 +157,17 @@ Freizeit von Wolfgang und Mechtild
 
 -------------------------------------------------------------------------------------------------------------
 
+27.12.2025 – 04.01.2026 
 
+Jahreswechsel 2025/2026 im Naturfreundehaus Hannover
 
+![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
+
+[Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
+
+Freizeit von Gerburg
+
+---------------------------------------------------------------------------------------------------------------
 
 
 
