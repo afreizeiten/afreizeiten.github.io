@@ -131,7 +131,7 @@ Freizeit von  Silke und Dietrich
 
 -------------------------------------------------------------------------------------------------------------
 
-LEIDER SCHON VOLL 
+NOCH 1 PLATZ IM FRAUENZIMMER FREI 
 
 05.09.2025 - 14.09.2025
 
