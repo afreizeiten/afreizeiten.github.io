@@ -54,7 +54,7 @@ Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph
 
 -------------------------------------------------------------------------------------------------------
 
-### 11-Uhr-Telefonmeeting (EKS, EA, CoDA etc.) täglich von 11 - 12 Uhr Tel. 0221-98203406 Zugangscode: 1743105 # ###
+### 11-Uhr-Telefonmeeting (EKS, EA, CoDA etc.) täglich von 11 - 12 Uhr Tel. 0221-98203406 Zugangscode: 1743105# ###
 
 Kontakt: genesung11uhr@yahoo.com
 
