@@ -230,6 +230,8 @@ Sommerfreizeiten in Allmannsried
 
 [Frauenfreizeit von Irmgard](pdf/2024AFreizeitFlyerPDF.pdf)
 
+[Frauenfreizeit von Irmgard](pdf/2025FrauenfreizeitFlyerüberarbeitetam7.11.24.pdf)
+
 -----------------------------------------------------------------------------
 
 ## Freizeiten von Gerburg
