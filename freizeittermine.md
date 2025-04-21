@@ -47,18 +47,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-29.03.2025 - 05.04.2025
-
-Frauenfreizeit in Pronsfeld
-
-![Pronsfeld](/images/BildleistePronsfeld.png)
-
-[Frauenfreizeit von Irmgard](pdf/2025FrauenfreizeitFlyerüberarbeitetam7.11.24.pdf)
-
-Freizeit von Irmgard
-
----------------------------------------------------------------------------------------------------------
-
 14.04.2025 - 21.04.2025
 
 Osterfreizeit in Allmannsried
