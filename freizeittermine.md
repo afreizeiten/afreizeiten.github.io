@@ -47,21 +47,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-
-----------------------------------------------------------------------------------------------------------
-
-17.04.2025 - 26.04.2025
-
-Osterfreizeit in Bremen
-
-![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
-
-[Osterfreizeit_2025 Bremen](pdf/Osterfreizeit_2025Blumenthal.pdf)
-
-Freizeit von Wolfgang und Mechtild
-
------------------------------------------------------------------------------------------------------------
-
 16.05.2025 - 18.05.2025
 
 A-Wochenende in Bremen-Blumenthal
