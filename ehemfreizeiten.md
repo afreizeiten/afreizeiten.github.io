@@ -186,6 +186,8 @@ Osterfreizeiten
 
 ![allmannsried](/images/allmansried.jpeg)
 
+[Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_25.pdf)  
+
 [Osterfreizeit_2024 Allmannsried](pdf/AusschreibungOsterfreizeit_24.pdf)   
 
 [Ostern 2023 in Allmannsried](pdf/Osterfreizeit Allmannsried 2023-Ausschreibung .pdf)
