@@ -47,15 +47,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-14.04.2025 - 21.04.2025
-
-Osterfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_25.pdf)   
-
-Freizeit von Silke und Dietrich
 
 ----------------------------------------------------------------------------------------------------------
 
