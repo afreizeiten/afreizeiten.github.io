@@ -100,9 +100,11 @@ Sommerfreizeiten in Binz/Rügen
 
 Osterfreizeiten in Bremen
 
-[Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
-
 ![Bremen](images/LeisteOsternBremen.jpg)
+
+[Osterfreizeit_2025 Bremen](pdf/Osterfreizeit_2025Blumenthal.pdf)
+
+[Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
 
 [Ostern 2023 in Bremen Blumenthal](pdf/OsterfreizeitinBlumenthalbeiBremen.pdf)
 
