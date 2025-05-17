@@ -143,7 +143,7 @@ Osterfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_25.pdf)   
+[Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_26.pdf)   
 
 Freizeit von Silke und Dietrich
 
