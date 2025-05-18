@@ -47,18 +47,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-16.05.2025 - 18.05.2025
-
-A-Wochenende in Bremen-Blumenthal
-
-![BremenMinifreizeit](/images/Leiste_Mini_Mai_(1).jpg)
-
-[Minifreizeit Bremen 2024](pdf/Mini-FreizeitBremenBlumenthal2025.pdf)
-
-Freizeit von Reiner und Mechtild
-
-------------------------------------------------------------------------------------------------------------
-
 07.07.2025 - 17.07.2025
 
 35.Bernrieder Freizeit
