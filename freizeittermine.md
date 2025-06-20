@@ -21,19 +21,13 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 --------------------------------------------------------------------------------------------------
 
-## Vorankündigung
-
 26.12.2025 - 05.01.2026
 
 Silvesterfreizeit auf der Freusburg/Kirchen im Westerwald
 
 ![Winterfreizeit Freusburg Bilder](/images/Freusburg.png)
 
-Wir wohnen in einem über tausend Jahre alten Kulturdenkmal und erleben das Mittelalter hautnah
-In zahlreichen EZ, DZ und MBZ mit zeitgemäßem Komfort (Flyer folgt). 
-Hier ein kleiner Vorgeschmack: https://www.youtube.com/watch?v=j01IX1rRtRg (Quelle: Jugendherberge.de - Youtube)
-
-### Es werden Teamer gesucht
+[Silvesterfreizeit 25_26 Freusburg](pdf/Silvester-Freizeit2024_25inFreusburg.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
