@@ -27,7 +27,7 @@ Silvesterfreizeit auf der Freusburg/Kirchen im Westerwald
 
 ![Winterfreizeit Freusburg Bilder](/images/Freusburg.png)
 
-[Silvesterfreizeit 25_26 Freusburg](pdf/Silvester-Freizeit2024_25inFreusburg.pdf)
+[Silvesterfreizeit 25_26 Freusburg](pdf/Silvester-Freizeit2025_26Freusburg.pdf)
 
 Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
