@@ -56,6 +56,8 @@ Sommerfreizeit Grömitz
 
 ![grömitz](/images/groemitz.jpeg)
 
+[Sommerfreizeit Grömitz 2025](pdf/Einladung_Sommerfreizeit_Grömitz_2025_2.pdf)    korrigierter Flyer
+
 [Sommerfreizeit Grömitz 2024](pdf/Sommerfreizeit2024Gro_mitz_Endfassung.pdf)
 
 [Sommerfreizeit in Grömitz](pdf/2023Gro_mitzV2_Klaus_20221204.pdf)
