@@ -302,6 +302,10 @@ Toskana-Freizeit
 
 ![Bernrieder Freizeit](https://ik.imagekit.io/zcrl68n9dky/tr:oi-images@@Bernried_1.jpg,ox-0,oy-0,ow-94,oh-68:oi-images@@Bernried_2.jpg,ox-97,oy-0,ow-94,oh-68:oi-images@@Bernried_3.jpg,ox-194,oy-0,ow-94,oh-68:oi-images@@Bernried_4.jpg,ox-291,oy-0,ow-94,oh-68:oi-images@@Bernried_5.jpg,ox-388,oy-0,ow-94,oh-68/white.jpg)
 
+![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
+
+[Bernrieder Schritte Freizeit 2025](pdf/Bernried25-25.02.14-2Flyer07.07-17.pdf)
+
 [Bernrieder Freizeit 2023](pdf/Bernried23-23.01.26-2Flyer07.10-20.pdf)
 
 [32. Bernrieder Schritte-Seminar.pdf](/pdf/Bernried22-22.04.06-1Flyer.pdf)
