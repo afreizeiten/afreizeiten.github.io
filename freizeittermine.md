@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-21.07.2025 - 31.07.2025  
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Sommerfreizeit Allmannsried 2025](pdf/A-Freizeit2025.pdf)
-
-Freizeit von Wolfgang
-
------------------------------------------------------------------------------------------------------------
-
 13.08.2025 - 23.08.2025
 
 Sommerfreizeit in Allmannsried
