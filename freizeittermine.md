@@ -89,7 +89,7 @@ Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Sommer 2025 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit26.Stand.pdf)
+[Sommer 2026 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit26.Stand.pdf)
 
 Freizeit von  Silke und Dietrich
 
