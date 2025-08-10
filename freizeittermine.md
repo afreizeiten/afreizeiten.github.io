@@ -26,15 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 ------------------------------------------------------------------------------------------------------
 
-13.08.2025 - 23.08.2025
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Sommer 2025 in Allmannsried Silke und Dietrich](pdf/AusschreibungSommerfreizeit25.pdf)
-
-Freizeit von  Silke und Dietrich
 
 -------------------------------------------------------------------------------------------------------------
 
@@ -91,6 +82,18 @@ Osterfreizeit in Allmannsried
 Freizeit von Silke und Dietrich
 
 --------------------------------------------------------------------------------------------------------------
+
+10.08.2026- 20.08.2026
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Sommer 2025 in Allmannsried Silke und Dietrich](pdf/AusschreibungSommerfreizeit25.pdf)
+
+Freizeit von  Silke und Dietrich
+
+---------------------------------------------------------------------------------------------------------------
 
 
 
