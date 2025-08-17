@@ -83,6 +83,18 @@ Freizeit von Silke und Dietrich
 
 --------------------------------------------------------------------------------------------------------------
 
+13.07.2026 - 23.07.2026  
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Sommerfreizeit Allmannsried 2025](pdf/A_Freizeit2026.pdf)
+
+Freizeit von Wolfgang
+
+---------------------------------------------------------------------------------------------------------------
+
 10.08.2026- 20.08.2026
 
 Sommerfreizeit in Allmannsried
