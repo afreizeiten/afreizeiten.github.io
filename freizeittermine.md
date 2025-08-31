@@ -27,9 +27,9 @@ Sommer-Freizeit 2026 in Wendtorf / Kiel an der Ostsee.
 Wir wohnen in einem ehemaligen Bauernhof in zahlreichen EZ und DZ mit zeitgemäßem Komfort (Flyer folgt).
 Hier ein kleiner Vorgeschmack: www.ferienhof-lamp.de
 
-***WICHTIG***: ### Es werden noch Teamer gesucht. Bitte meldet euch beim Vorstand: Email: Vorstand@selbsthilfe-freizeitwerk.de ###
- 
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
+***WICHTIG***: Es werden noch Teamer gesucht. Bitte meldet euch beim Vorstand: Email: Vorstand@selbsthilfe-freizeitwerk.de
+
+Freizeit vom Selbsthilfe Freizeitwerk e.V. 
 
 ---------------------------------------------------------------------------------------------------
 
