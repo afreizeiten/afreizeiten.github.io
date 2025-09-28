@@ -45,20 +45,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -------------------------------------------------------------------------------------------------------------
 
-NOCH 1 PLATZ IM FRAUENZIMMER FREI 
-
-05.09.2025 - 14.09.2025
-
-Ostseefreizeit in Pustkowo/Polen 
-
-![Polen](/images/Leiste_Polen.jpg)
-
-
-
-Freizeit von Mechtild
-
--------------------------------------------------------------------------------------------------------------
-
 03.10.2025 - 12.10.2025
 
 Herbstfreizeit in Bremen
