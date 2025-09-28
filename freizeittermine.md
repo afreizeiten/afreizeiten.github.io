@@ -53,7 +53,7 @@ Ostseefreizeit in Pustkowo/Polen
 
 ![Polen](/images/Leiste_Polen.jpg)
 
-[Einladung Polenfreizeit 2024](pdf/Ostseefreizeit2025.pdf)
+
 
 Freizeit von Mechtild
 
