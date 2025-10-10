@@ -19,9 +19,9 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 veranstaltet von «Debtors Anonymous/BDA Visionsgroup # 7981» Recovery Castle II 2026 
 Burg Stahleck , Jugendherberge Bacharach, Germany
 
-[Debrots Anonymus/BDA](pdf/FinalFlyerBurgStahlek24.9.2026bND.pdf)
+[Debrots Anonymus/BDA](pdf/FinalFlyerBurgStahlek24.9.2026bND.pdf)    Englisch
 
-[Debrots Anonymus/BDA](pdf/Final_D_FlyerBurgStahlek24.9.2026b1.pdf)
+[Debrots Anonymus/BDA](pdf/Final_D_FlyerBurgStahlek24.9.2026b1.pdf)    Deutsch
 
 organisiert von Nicole aus Wiesbaden siehe Flyer
 
