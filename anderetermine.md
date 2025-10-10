@@ -13,6 +13,18 @@ Veranstaltungen mit, die in diese Kategorie passen.
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 -----------------------------------------------------------------------------------------------
+### Eine gemeinsame Lösung – Ein Treffen aller Gemeinschaften
+
+## 1-5 Januar 2026
+veranstaltet von «Debtors Anonymous/BDA Visionsgroup # 7981» Recovery Castle II 2026 
+Burg Stahleck , Jugendherberge Bacharach, Germany
+
+
+
+
+
+
+-----------------------------------------------------------------------------------------------
 
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
