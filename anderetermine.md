@@ -21,6 +21,8 @@ Burg Stahleck , Jugendherberge Bacharach, Germany
 
 [Debrots Anonymus/BDA](pdf/FinalFlyerBurgStahlek24.9.2026bND.pdf)
 
+[Debrots Anonymus/BDA](pdf/Final_D_ FlyerBurgStahlek24.9.2026b1.pdf)
+
 -----------------------------------------------------------------------------------------------
 
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
