@@ -34,6 +34,19 @@ Freizeit vom Selbsthilfe Freizeitwerk e.V.
 
 ---------------------------------------------------------------------------------------------------
 
+## Vorankündigung
+
+26.12.2026 - 05.01.2027 
+
+ 
+
+## ***Wichtig***: Es werden noch Teamer gesucht.
+Bitte meldet euch beim Vorstand: Email: Vorstand@selbsthilfe-freizeitwerk.de
+
+Freizeit vom Selbsthilf Freizeitwerk e.V.
+
+---------------------------------------------------------------------------------------------------
+
 # Freizeittermine privater Anbieter
 
 ---------------------------------------------------------------------------------------------------
