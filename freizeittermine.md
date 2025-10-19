@@ -38,7 +38,7 @@ Freizeit vom Selbsthilfe Freizeitwerk e.V.
 
 26.12.2026 - 05.01.2027 
 
- 
+![Winterfreizeit Freusburg Bilder](/images/Freusburg.png) 
 
 ## ***Wichtig***: Es werden noch Teamer gesucht.
 Bitte meldet euch beim Vorstand: Email: Vorstand@selbsthilfe-freizeitwerk.de
