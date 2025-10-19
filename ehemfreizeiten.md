@@ -120,6 +120,8 @@ Osterfreizeiten in Bremen
 
 Herbst-Freizeiten in Bremen
 
+[Herbstfreizeit Bremen 2024](pdf/Herbstfreizeit_Bremen_2025.pdf)
+
 ![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
 
 [Herbstfreizeit Bremen 2024](pdf/EinladungHerbst2024.pdf)
