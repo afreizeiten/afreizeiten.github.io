@@ -91,7 +91,7 @@ Osterfreizeit in Bremen
 
 ![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
 
-[Osterfreizeit_2026 Bremen](pdf/EinladungOstern2026.pdff)
+[Osterfreizeit_2026 Bremen](pdf/EinladungOstern2026.pdf)
 
 Freizeit von Cigdem und Mechtild
 
