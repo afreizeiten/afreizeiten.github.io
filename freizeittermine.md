@@ -85,6 +85,18 @@ Freizeit von Silke und Dietrich
 
 --------------------------------------------------------------------------------------------------------------
 
+02.04.2026 - 11.04.2026
+
+Osterfreizeit in Bremen
+
+![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
+
+[Osterfreizeit_2025 Bremen](pdf/Osterfreizeit_2025Blumenthal.pdf)
+
+Freizeit von Cigdem und Mechtild
+
+--------------------------------------------------------------------------------------------------------------
+
 13.07.2026 - 23.07.2026  
 
 Sommerfreizeit in Allmannsried
