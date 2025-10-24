@@ -121,6 +121,18 @@ Freizeit von  Silke und Dietrich
 
 ---------------------------------------------------------------------------------------------------------------
 
+08.10.2026 - 17.10.2026
+
+Herbstfreizeit in Bremen
+
+![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
+
+[Herbstfreizeit Bremen 2026](pdf/EinladungHerbst2026.pdf)
+
+Freizeit von n.n. und Mechtild
+
+---------------------------------------------------------------------------------------------------------------
+
 
 
 
