@@ -91,7 +91,7 @@ Osterfreizeit in Bremen
 
 ![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
 
-[Osterfreizeit_2025 Bremen](pdf/Osterfreizeit_2025Blumenthal.pdf)
+[Osterfreizeit_2025 Bremen](pdf/EinladungOstern2026.pdff)
 
 Freizeit von Cigdem und Mechtild
 
