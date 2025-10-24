@@ -121,6 +121,18 @@ Freizeit von  Silke und Dietrich
 
 ---------------------------------------------------------------------------------------------------------------
 
+02.09.2026 - 13.09.2026
+
+Ostseefreizeit in Pustkowo/Polen 
+
+![Polen](/images/Leiste_Polen.jpg)
+
+[Einladung Polenfreizeit 2026](pdf/EinladungPolen2026.pdf)
+
+Freizeit von Birgit und Mechtild
+
+---------------------------------------------------------------------------------------------------------------
+
 08.10.2026 - 17.10.2026
 
 Herbstfreizeit in Bremen
