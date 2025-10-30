@@ -27,6 +27,7 @@ organisiert von Nicole aus Wiesbaden siehe Flyer
 
 -----------------------------------------------------------------------------------------------
 
+
 ## 30.01. - 01.02.2026 EKS Ländertreffen Winter 2026 in Speyer vom 
 ### Carpe Diem - Nutze den Tag
 
