@@ -27,6 +27,16 @@ organisiert von Nicole aus Wiesbaden siehe Flyer
 
 -----------------------------------------------------------------------------------------------
 
+### 30.01. - 01.02.2026 EKS Ländertreffen Winter 2026 in Speyer vom 
+## Carpe Diem - Nutze den Tag
+
+Es sind noch Plätze im Mehrbettzimmer für euch frei. 
+
+[EKS LT Winter 2026 in Speyer](pdf/Flyer_EKS-LT_Winter_2026_Speyer_nnMBZ.pdf)
+
+Melde dich an, wir freuen uns auf dich!!!
+---------------------------------------------------------------------------------------------
+
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
 Jeden 1. und 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
