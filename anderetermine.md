@@ -35,7 +35,8 @@ Es sind noch Plätze im Mehrbettzimmer für euch frei.
 
 [EKS LT Winter 2026 in Speyer](pdf/Flyer_EKS-LT_Winter_2026_Speyer_nnMBZ.pdf)
 
-Melde dich an, wir freuen uns auf dich!!!
+### Melde dich an, wir freuen uns auf dich!!!
+
 ---------------------------------------------------------------------------------------------
 
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
