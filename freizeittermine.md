@@ -22,7 +22,7 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 Sommerfreizeit 2026 in Wendtorf an der Ostsee
 
-![Sommerfreizeit Wendtorf Bilder](/images/Bildleiste_Ferienhof_Lamp_Ostsee.png
+![Sommerfreizeit Wendtorf Bilder](/images/Bildleiste_Ferienhof_Lamp_Ostsee.png)
 
 [Sommerfreizeit Wendorf 2026](pdf/FlyerWendtorf2026(1).pdf)
 
