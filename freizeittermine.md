@@ -18,17 +18,13 @@ Freizeit vom Selbsthilfe-Freizeitwerk e.V.
 
 --------------------------------------------------------------------------------------------------
 
-## VORANKÜNDIGUNG 
+06.06.2026 bis 18.06.2026 
 
-06.06.2026 – 18.06.2026
+Sommerfreizeit 2026 in Wendtorf an der Ostsee
 
-Sommer-Freizeit 2026 in Wendtorf / Kiel an der Ostsee.
+![Sommerfreizeit Wendtorf Bilder](/images/Bildleiste_Ferienhof_Lamp_Ostsee.png
 
-Wir wohnen in einem ehemaligen Bauernhof in zahlreichen EZ und DZ mit zeitgemäßem Komfort (Flyer folgt).
-Hier ein kleiner Vorgeschmack: www.ferienhof-lamp.de
-
-## ***WICHTIG***: Es werden noch Teamer gesucht. 
-Bitte meldet euch beim Vorstand: Email: Vorstand@selbsthilfe-freizeitwerk.de
+[Sommerfreizeit Wendorf 2026](pdf/FlyerWendtorf2026(1).pdf)
 
 Freizeit vom Selbsthilfe Freizeitwerk e.V. 
 
