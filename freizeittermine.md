@@ -71,6 +71,18 @@ Freizeit von Gerburg
 
 ---------------------------------------------------------------------------------------------------------------
 
+16.01.2026 – 18.01.2026
+
+Mini-Freizeit in Bremen-Blumenthal
+
+![Leiste Bremen](/images/Leiste_Mini_Februar.jpg)
+
+[Minifreizeit 2026 Bremen](pdf/Mini-Freizeit_Bremen_Januar_2026.pdf)
+
+Freizeit von Mechtild
+
+--------------------------------------------------------------------------------------------------------------
+
 30.03.2026 - 07.04.2026
 
 Osterfreizeit in Allmannsried
