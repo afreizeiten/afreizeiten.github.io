@@ -6,18 +6,6 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-26.12.2025 - 05.01.2026
-
-Silvesterfreizeit auf der Freusburg/Kirchen im Westerwald
-
-![Winterfreizeit Freusburg Bilder](/images/Freusburg.png)
-
-[Silvesterfreizeit 25_26 Freusburg](pdf/Silvester-Freizeit2025_26Freusburg.pdf)
-
-Freizeit vom Selbsthilfe-Freizeitwerk e.V.
-
---------------------------------------------------------------------------------------------------
-
 06.06.2026 bis 18.06.2026 
 
 Sommerfreizeit 2026 in Wendtorf an der Ostsee
@@ -37,9 +25,6 @@ Freizeit vom Selbsthilfe Freizeitwerk e.V.
 Winterfreizeit auf der Freusburg 2026/27
 
 ![Winterfreizeit Freusburg Bilder](/images/Freusburg.png) 
-
-## ***Wichtig***: Es werden noch Teamer gesucht.
-Bitte meldet euch beim Vorstand: Email: Vorstand@selbsthilfe-freizeitwerk.de
 
 Freizeit vom Selbsthilf Freizeitwerk e.V.
 
