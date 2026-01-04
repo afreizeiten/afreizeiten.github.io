@@ -20,6 +20,8 @@ Silvester-Freizeit in Kirchen (Sieg) auf der Freusburg
 
 ![Freusburg Sieg im Westerwald](/images/Freusburg.png)
 
+[Silvesterfreizeit 25_26 Freusburg](pdf/Silvester-Freizeit2025_26Freusburg.pdf)
+
 [Silvesterfreizeit 24_25 Freusburg](pdf/Silvester-Freizeit2024_25inFreusburg.pdf)
 
 --------------------------------------------------------------------------------
