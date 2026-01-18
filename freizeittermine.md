@@ -116,6 +116,8 @@ Freizeit von  Silke und Dietrich
 
 ---------------------------------------------------------------------------------------------------------------
 
+###Plätze nur noch im 3er-Zimmer!###
+
 02.09.2026 - 13.09.2026
 
 Ostseefreizeit in Pustkowo/Polen 
