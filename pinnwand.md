@@ -14,18 +14,19 @@ Eure eMails sollten mindestens folgendes enthalten:
 
 --------------------------------------------------------------------------------
 
-Ich bin Agnes Seifert und Wohne in 40231 Düsseldorf.
-Für die Silvester-Freizeit vom 26.12.2025 bis 5.1.2026 suche ich eine Mitfahrgelegenheit.
-Am 26.12.2025 nach Kirchen und am 5.1.2026 zurück nach Düsseldorf.
+Hallo, ich bin Gerburg und wohne in 74915 Waibstadt. Für die Sommerfreizeit in Wendtorf suche ich eine Mitfahrgelegenheit.
+
+Am 06.06.2026 nach Wendtorf und am 18.06.2026 zurück nach Waibstadt. 
+
+Möglich wäre auch, dass ich eine Teilstrecke Richtung Norden mit der Bahn fahre und an einem Bahnhof in deiner Nähe in dein Auto umsteige. 
+
 Meine Kontakt-Daten:
 
-eMail:   sonnenschein2552@aol.com
+eMail: gerburg2001@gmx.de
 
-Tel.: 0211-1577176
+Tel.: 0178 175 9311
 
-Herzliche Grüße
-Agnes Seifert
-
+Herzliche Grüße, Gerburg
 -----------------------------------------------------------------------------------
 
 Beiträge<br>
