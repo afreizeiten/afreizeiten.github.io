@@ -12,22 +12,6 @@ Eure eMails sollten mindestens folgendes enthalten:
 4. Kontaktname 
 5. Kontaktdaten (eMail-Adresse/Telefonnummer)
 
---------------------------------------------------------------------------------
-
-Hallo, ich bin Gerburg und wohne in 74915 Waibstadt. Für die Sommerfreizeit in Wendtorf suche ich eine Mitfahrgelegenheit.
-
-Am 06.06.2026 nach Wendtorf und am 18.06.2026 zurück nach Waibstadt. 
-
-Möglich wäre auch, dass ich eine Teilstrecke Richtung Norden mit der Bahn fahre und an einem Bahnhof in deiner Nähe in dein Auto umsteige. 
-
-Meine Kontakt-Daten:
-
-eMail: gerburg2001@gmx.de
-
-Tel.: 0178 175 9311
-
-Herzliche Grüße, Gerburg
-
 -----------------------------------------------------------------------------------
 
 Beiträge<br>
