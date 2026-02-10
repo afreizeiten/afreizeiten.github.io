@@ -68,6 +68,18 @@ Freizeit von Mechtild
 
 --------------------------------------------------------------------------------------------------------------
 
+06.03.2026 – 08.03.2026
+
+Mini-Freizeit in Bremen-Blumenthal
+
+![Leiste Bremen](/images/Leiste_Mini_Februar.jpg)
+
+[Minifreizeit 2026 Bremen](pdf/Minifreizeit 2026/03 Bremen.pdf)
+
+Freizeit von Mechtild und Renate
+
+-------------------------------------------------------------------------------------------------------------
+
 30.03.2026 - 07.04.2026
 
 Osterfreizeit in Allmannsried
