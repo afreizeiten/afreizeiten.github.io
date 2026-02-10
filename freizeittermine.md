@@ -32,41 +32,11 @@ Freizeit vom Selbsthilf Freizeitwerk e.V.
 
 # Freizeittermine privater Anbieter
 
----------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------------
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
-------------------------------------------------------------------------------------------------------
-
-------------------------------------------------------------------------------------------------------
-
-27.12.2025 – 04.01.2026 
-
-Jahreswechsel 2025/2026 im Naturfreundehaus Hannover
-
-![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
-
-[Silvesterfreizeit 2025/26 in Hannover](pdf/EinladungJahreswechsel2025-2026imNaturfreundehausHannover.pdf)
-
-Freizeit von Gerburg
-
----------------------------------------------------------------------------------------------------------------
-
-## 2026 ##
-
----------------------------------------------------------------------------------------------------------------
-
-16.01.2026 – 18.01.2026
-
-Mini-Freizeit in Bremen-Blumenthal
-
-![Leiste Bremen](/images/Leiste_Mini_Februar.jpg)
-
-[Minifreizeit 2026 Bremen](pdf/Mini-Freizeit_Bremen_Januar_2026.pdf)
-
-Freizeit von Mechtild
-
---------------------------------------------------------------------------------------------------------------
+-----------------------------------------------------------------------------------------------------------
 
 06.03.2026 – 08.03.2026
 
