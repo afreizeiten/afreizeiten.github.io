@@ -254,6 +254,8 @@ Sommerfreizeiten in Allmannsried
 
 ![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
 
+[Silvesterfreizeit 2025/26 in Hannover](pdf/EinladungJahreswechsel2025-2026imNaturfreundehausHannover.pdf)
+
 [Silvesterfreizeit 2024/25 in Hannover](pdf/JahreswechselimNaturfreundehausHannoverEinladung.pdf)
 
 ---------------------------------------------------------------------------------
