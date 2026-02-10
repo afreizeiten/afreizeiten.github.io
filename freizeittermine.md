@@ -74,7 +74,7 @@ Mini-Freizeit in Bremen-Blumenthal
 
 ![Leiste Bremen](/images/Leiste_Mini_Februar.jpg)
 
-[Minifreizeit 2026 Bremen](pdf/Minifreizeit 2026/03 Bremen.pdf)
+[Minifreizeit 2026 Bremen](pdf/Einladung-Mini-Freizeit-2026-03.pdf)
 
 Freizeit von Mechtild und Renate
 
