@@ -86,6 +86,18 @@ Freizeit von Wolfgang
 
 ---------------------------------------------------------------------------------------------------------------
 
+13.07.2026 - 23.07.2026
+
+36.Bernrieder Freizeit
+
+![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
+
+[Bernrieder Schritte Freizeit 2025](pdf/Bernried26-26.02.18-2Flyer07.13-23.pdf)
+
+Freizeit von Mati, Dorothee und Sabine
+
+--------------------------------------------------------------------------------------------------------------
+
 10.08.2026- 20.08.2026
 
 Sommerfreizeit in Allmannsried
