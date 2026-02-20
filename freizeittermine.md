@@ -56,7 +56,7 @@ Osterfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_26.pdf)   
+[Osterfreizeit_2026 Allmannsried](pdf/AusschreibungOsterfreizeit_26.pdf)   
 
 Freizeit von Silke und Dietrich
 
@@ -80,7 +80,7 @@ Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Sommerfreizeit Allmannsried 2025](pdf/A_Freizeit2026.pdf)
+[Sommerfreizeit Allmannsried 2026](pdf/A_Freizeit2026.pdf)
 
 Freizeit von Wolfgang
 
@@ -92,7 +92,7 @@ Freizeit von Wolfgang
 
 ![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
 
-[Bernrieder Schritte Freizeit 2025](pdf/Bernried26-26.02.18-2Flyer07.13-23.pdf)
+[Bernrieder Schritte Freizeit 2026](pdf/Bernried26-26.02.18-2Flyer07.13-23.pdf)
 
 Freizeit von Mati, Dorothee und Sabine
 
