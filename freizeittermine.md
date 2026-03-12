@@ -136,6 +136,18 @@ Freizeit von n.n. und Mechtild
 
 ---------------------------------------------------------------------------------------------------------------
 
+27.12.2026 bis 04.01.2027
+
+Jahreswechsel 2026/2027 im Naturfreundehaus Hannover
+
+![Silvesterfreizeit Hannover Bilder](/images/Hannover_Leiste.png)
+
+[Silvesterfreizeit 2026/27 in Hannover](pdf/Einladung_Jahreswechsel_2026-2027_im_Naturfreundehaus_Hannover.pdf)
+
+Freizeit von Gerburg
+
+------------------------------------------------------------------------------------------------------------------
+
 
 
 
