@@ -13,29 +13,11 @@ Veranstaltungen mit, die in diese Kategorie passen.
 bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 -----------------------------------------------------------------------------------------------
-### Eine gemeinsame Lösung – Ein Treffen aller Gemeinschaften
 
-## 1-5 Januar 2026
-veranstaltet von «Debtors Anonymous/BDA Visionsgroup # 7981» Recovery Castle II 2026 
-Burg Stahleck , Jugendherberge Bacharach, Germany
-
-[Debrots Anonymous/BDA](pdf/FinalFlyerBurgStahlek24.9.2026bND.pdf)    Englisch
-
-[Debrots Anonymous/BDA](pdf/Final_D_FlyerBurgStahlek24.9.2026b1.pdf)    Deutsch
-
-organisiert von Nicole aus Wiesbaden siehe Flyer
-
------------------------------------------------------------------------------------------------
-
-
-## 30.01. - 01.02.2026 EKS Ländertreffen Winter 2026 in Speyer 
-### Carpe Diem - Nutze den Tag
-
-Es sind noch Plätze im Mehrbettzimmer für euch frei. 
+## 30.10. - 01.11.2026 Präsenzworkshop 
+### 12 Schritte - ein Lebensprogramm 
 
 [EKS LT Winter 2026 in Speyer](pdf/Flyer_EKS-LT_Winter_2026_Speyer_nnMBZ.pdf)
-
-### Melde dich an, wir freuen uns auf dich!!!
 
 ---------------------------------------------------------------------------------------------
 
