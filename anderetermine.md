@@ -14,10 +14,10 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 -----------------------------------------------------------------------------------------------
 
-## 30.10. - 01.11.2026 Präsenzworkshop 
+## 30.10. - 01.11.2026 Präsenzworkshop in Kaufbeuren
 ### 12 Schritte - ein Lebensprogramm 
 
-[EKS LT Winter 2026 in Speyer](pdf/Flyer_EKS-LT_Winter_2026_Speyer_nnMBZ.pdf)
+[EKS LT Winter 2026 in Speyer](pdf/12_Schritte_Workshop.pdf)
 
 ---------------------------------------------------------------------------------------------
 
