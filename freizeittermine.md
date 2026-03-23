@@ -74,6 +74,16 @@ Freizeit von Cigdem und Mechtild
 
 --------------------------------------------------------------------------------------------------------------
 
+04.07.2026 - 12.07.2026
+
+Sommerfreizeit in Kaufbeuren
+
+[Sommerfreizeit 2026 Kaufbeuren](pdf/A-Freizeit.pdf)
+
+Freizeit von Annett
+
+--------------------------------------------------------------------------------------------------------------
+
 13.07.2026 - 23.07.2026  
 
 Sommerfreizeit in Allmannsried
