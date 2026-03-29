@@ -38,18 +38,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------------
 
-06.03.2026 – 08.03.2026
-
-Mini-Freizeit in Bremen-Blumenthal
-
-![Leiste Bremen](/images/Leiste_Mini_Februar.jpg)
-
-[Minifreizeit 2026 Bremen](pdf/Einladung-Mini-Freizeit-2026-03.pdf)
-
-Freizeit von Mechtild und Renate
-
--------------------------------------------------------------------------------------------------------------
-
 30.03.2026 - 07.04.2026
 
 Osterfreizeit in Allmannsried
