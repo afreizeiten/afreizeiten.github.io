@@ -66,6 +66,8 @@ Freizeit von Cigdem und Mechtild
 
 Sommerfreizeit in Kaufbeuren
 
+![kaufbeuren](/images/Bildleiste_A_Freizeiten_Kaufbeuren.png)
+
 [Sommerfreizeit 2026 Kaufbeuren](pdf/A-Freizeit.pdf)
 
 Freizeit von Annett
