@@ -200,6 +200,8 @@ Osterfreizeiten
 
 ![allmannsried](/images/allmansried.jpeg)
 
+[Osterfreizeit_2026 Allmannsried](pdf/AusschreibungOsterfreizeit_26.pdf)   
+
 [Osterfreizeit_2025 Allmannsried](pdf/AusschreibungOsterfreizeit_25.pdf)  
 
 [Osterfreizeit_2024 Allmannsried](pdf/AusschreibungOsterfreizeit_24.pdf)   
