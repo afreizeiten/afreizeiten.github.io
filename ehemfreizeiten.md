@@ -106,6 +106,8 @@ Osterfreizeiten in Bremen
 
 ![Bremen](images/LeisteOsternBremen.jpg)
 
+[Osterfreizeit_2026 Bremen](pdf/EinladungOstern2026.pdf)
+
 [Osterfreizeit_2025 Bremen](pdf/Osterfreizeit_2025Blumenthal.pdf)
 
 [Osterfreizeit_2024 Bremen](pdf/Osterfreizeit2024Bremen-Blumenthal.pdf)
