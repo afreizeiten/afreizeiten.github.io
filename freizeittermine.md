@@ -38,30 +38,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------------
 
-30.03.2026 - 07.04.2026
-
-Osterfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Osterfreizeit_2026 Allmannsried](pdf/AusschreibungOsterfreizeit_26.pdf)   
-
-Freizeit von Silke und Dietrich
-
---------------------------------------------------------------------------------------------------------------
-
-02.04.2026 - 11.04.2026
-
-Osterfreizeit in Bremen
-
-![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
-
-[Osterfreizeit_2026 Bremen](pdf/EinladungOstern2026.pdf)
-
-Freizeit von Cigdem und Mechtild
-
---------------------------------------------------------------------------------------------------------------
-
 04.07.2026 - 12.07.2026
 
 Sommerfreizeit in Kaufbeuren
