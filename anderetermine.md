@@ -21,6 +21,15 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ---------------------------------------------------------------------------------------------
 
+### EKS Meeting
+
+in Remscheid, an underagen Mittwochs, von 19 bis 20.30,
+In Gertenbachstraße 9, 42899 Remscheid,
+
+Ansprechpartner:Alicja 01783262532 und Oliver 01604371917.
+
+--------------------------------------------------------------------------------------------
+
 ### Kuschelmeeting Bonn (für alle A-Gruppen-Angehörigen)
 
 Jeden 1. und 3. Freitag im Monat findet von 19.30 bis 21.30 Uhr (Einlass ab 19:15 Uhr) 
