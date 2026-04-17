@@ -23,7 +23,7 @@ bitte bekanntgeben - <webmaster@a-freizeiten.de>
 
 ### EKS Meeting
 
-in Remscheid, an underagen Mittwochs, von 19 bis 20.30,
+in Remscheid, an ungeraden Mittwochs, von 19 bis 20.30,
 In Gertenbachstraße 9, 42899 Remscheid,
 
 Ansprechpartner:Alicja 01783262532 und Oliver 01604371917.
