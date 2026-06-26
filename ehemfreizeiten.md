@@ -8,6 +8,14 @@ title: Ehemalige Freizeiten
 
 ## Freizeiten vom Selbsthilfe-Freizeitwerk e.V.
 
+-------------------------------------------------------------------------------------
+
+![Sommerfreizeit Wendtorf Bilder](/images/Bildleiste_Ferienhof_Lamp_Ostsee.png)
+
+[Sommerfreizeit Wendorf 2026](pdf/FlyerWendtorf2026(1).pdf)
+
+--------------------------------------------------------------------------------------
+
 Virtuelle Weihnachtsfreizeit 
 
 ![virtuelle Weihnachtsfreizeit](/images/weihnachtfreizeit.png)
