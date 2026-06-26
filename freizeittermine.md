@@ -26,7 +26,7 @@ Winterfreizeit auf der Freusburg 2026/27
 
 [Silvesterfreizeit 26_27 Freusburg](pdf/Silvester-Freizeit_2026_27_Freusburg(1).pdf)
 
-Freizeit vom Selbsthilf Freizeitwerk e.V.
+Freizeit vom Selbsthilfe Freizeitwerk e.V.
 
 ---------------------------------------------------------------------------------------------------
 
