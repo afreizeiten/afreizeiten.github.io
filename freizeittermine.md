@@ -6,18 +6,6 @@ title: Termine
 
 --------------------------------------------------------------------------------------------------
 
-06.06.2026 bis 18.06.2026 
-
-Sommerfreizeit 2026 in Wendtorf an der Ostsee
-
-![Sommerfreizeit Wendtorf Bilder](/images/Bildleiste_Ferienhof_Lamp_Ostsee.png)
-
-[Sommerfreizeit Wendorf 2026](pdf/FlyerWendtorf2026(1).pdf)
-
-Freizeit vom Selbsthilfe Freizeitwerk e.V. 
-
----------------------------------------------------------------------------------------------------
-
 26.12.2026 - 05.01.2027 
 
 Winterfreizeit auf der Freusburg 2026/27
