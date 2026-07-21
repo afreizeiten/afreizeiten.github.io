@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------------
 
-04.07.2026 - 12.07.2026
-
-Sommerfreizeit in Kaufbeuren
-
-![kaufbeuren](/images/Bildleiste_A_Freizeiten_Kaufbeuren.png)
-
-[Sommerfreizeit 2026 Kaufbeuren](pdf/A-Freizeit.pdf)
-
-Freizeit von Annett
-
---------------------------------------------------------------------------------------------------------------
-
 13.07.2026 - 23.07.2026  
 
 Sommerfreizeit in Allmannsried
