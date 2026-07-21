@@ -375,3 +375,11 @@ Toskana-Freizeit
 [Ostern 2016 in Schaippach](/pdf/ErichOsterfreizeit2016.pdf)
 
 ----------------------------------------------------------------------------
+
+## Freizeit von Annett Kaufbeuren
+
+![kaufbeuren](/images/Bildleiste_A_Freizeiten_Kaufbeuren.png)
+
+[Sommerfreizeit 2026 Kaufbeuren](pdf/A-Freizeit.pdf)
+
+-----------------------------------------------------------------------------
