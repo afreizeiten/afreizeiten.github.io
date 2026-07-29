@@ -108,7 +108,7 @@ Sommerfreizeit in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
-[Sommerfreizeit Allmannsried 2026](pdf/A_Freizeit2026.pdf)
+[Sommerfreizeit Allmannsried 2026](pdf/A_Freizeit_2027WolfgangAllmansried.pdf)
 
 Freizeit von Wolfgang
 
