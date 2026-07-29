@@ -26,30 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------------
 
-13.07.2026 - 23.07.2026  
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Sommerfreizeit Allmannsried 2026](pdf/A_Freizeit2026.pdf)
-
-Freizeit von Wolfgang
-
----------------------------------------------------------------------------------------------------------------
-
-13.07.2026 - 23.07.2026
-
-36.Bernrieder Freizeit
-
-![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
-
-[Bernrieder Schritte Freizeit 2026](pdf/Bernried26-26.02.18-2Flyer07.13-23.pdf)
-
-Freizeit von Mati, Dorothee und Sabine
-
---------------------------------------------------------------------------------------------------------------
-
 31.07.2026  –  09.08.2026  
 
 Sommerfreizeit in Bleichnau
