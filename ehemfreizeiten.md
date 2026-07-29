@@ -332,6 +332,8 @@ Toskana-Freizeit
 
 ![BernriederFreizeit](/images/Bildleiste_Bernrieder_Freizeit.png)
 
+[Bernrieder Schritte Freizeit 2026](pdf/Bernried26-26.02.18-2Flyer07.13-23.pdf)
+
 [Bernrieder Schritte Freizeit 2025](pdf/Bernried25-25.02.14-2Flyer07.07-17.pdf)
 
 [Bernrieder Freizeit 2023](pdf/Bernried23-23.01.26-2Flyer07.10-20.pdf)
