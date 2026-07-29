@@ -228,6 +228,8 @@ Sommerfreizeiten in Allmannsried
 
 ![allmannsried](/images/allmansried.jpeg)
 
+[Sommerfreizeit Allmannsried 2026](pdf/A_Freizeit2026.pdf)
+
 [Sommerfreizeit Allmannsried 2025](pdf/A-Freizeit2025.pdf)
 
 [Sommerfreizeit Allamnnsried 2024](pdf/A-Freizeit2021.pdf)
