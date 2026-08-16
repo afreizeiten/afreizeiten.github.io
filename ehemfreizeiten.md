@@ -256,6 +256,12 @@ Sommerfreizeiten in Allmannsried
 
 [2017 Sommerfreizeit Allmannsried 2.pdf](/pdf/SOMMER IN ALLMANNSRIED2017_2.pdf)
 
+Sommerfreizeit Bleichnau
+
+![bleichnau](/images/Bildleiste_A-Freizeiten_Bleichnau.png)
+
+[Sommerfreizeit Bleichnau 2026](pdf/A-Freizeit_Bleichnau_2026.pdf)
+
 ----------------------------------------------------------------------------
 
 ## FrauenFreizeit von Irmgard
