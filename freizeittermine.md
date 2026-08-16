@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------------
 
-31.07.2026  –  09.08.2026  
-
-Sommerfreizeit in Bleichnau
-
-![bleichnau](/images/Bildleiste_A-Freizeiten_Bleichnau.png)
-
-[Sommerfreizeit Bleichnau 2026](pdf/A-Freizeit_Bleichnau_2026.pdf)
-
-Freizeit von Wolfgang und Beate
-
----------------------------------------------------------------------------------------------------------------
-
 10.08.2026- 20.08.2026
 
 Sommerfreizeit in Allmannsried
