@@ -202,6 +202,8 @@ Sommerfreizeiten
 
 ![allmannsried](/images/allmansried.jpeg)
 
+[Sommer 2026 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit26.Stand.pdf)
+
 [Sommer 2024 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit_2024.pdf)
 
 [Sommer 2023 in Allmannsried Silke und Dietrich](pdf/AusschreibungAllmannsried2023_2.pdf)
