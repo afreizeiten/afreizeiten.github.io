@@ -26,18 +26,6 @@ Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen 
 
 -----------------------------------------------------------------------------------------------------------
 
-10.08.2026- 20.08.2026
-
-Sommerfreizeit in Allmannsried
-
-![allmannsried](/images/allmansried.jpeg)
-
-[Sommer 2026 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit26.Stand.pdf)
-
-Freizeit von  Silke und Dietrich
-
----------------------------------------------------------------------------------------------------------------
-
 02.09.2026 - 13.09.2026
 
 Ostseefreizeit in Pustkowo/Polen 
