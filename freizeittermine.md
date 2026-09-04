@@ -90,6 +90,17 @@ Freizeit von Wolfgang
 
 ------------------------------------------------------------------------------------------------------------------
 
+16.08.2027- 26.08.2027
+
+Sommerfreizeit in Allmannsried
+
+![allmannsried](/images/allmansried.jpeg)
+
+[Sommer 2026 in Allmannsried Silke und Dietrich](pdf/Sommerfreizeit_27.pdf)
+
+Freizeit von  Silke und Dietrich
+
+--------------------------------------------------------------------------------------------------------------------
 
 
 
