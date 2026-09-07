@@ -49,14 +49,6 @@ Infos unter 01782090444 (Monika)
 
 -------------------------------------------------------------------------------------------------
 
-### Inventur-Wochenende, Tagesmeetings und Jahreswechsel für Weggefährten aus allen A-Gruppen
-
-Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph 
-
-<http://www.12schrittewochenende.de>
-
--------------------------------------------------------------------------------------------------------
-
 ### 12-Schritte-Programm für Coabhängige basierend auf dem Blauen Buch der Anonymen Alkoholiker.
 
 <http://www.rc12schritte.de>
