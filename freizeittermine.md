@@ -16,7 +16,19 @@ Winterfreizeit auf der Freusburg 2026/27
 
 Freizeit vom Selbsthilfe Freizeitwerk e.V.
 
----------------------------------------------------------------------------------------------------
+-------------------------------------------------------------------------------------------------
+
+21.06.2027 bis 03.07.2027 
+
+Sommerfreizeit 2024 in Grömitz
+
+![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
+
+[Sommerfreizeit Grömitz 2027](pdf/Sommerfreizeit_Grömitz_2027.pdf)
+
+Freizeit vom Selbsthilfe Freizeitwerk e.V.
+
+-------------------------------------------------------------------------------------------------
 
 # Freizeittermine privater Anbieter
 
