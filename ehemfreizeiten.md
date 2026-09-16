@@ -188,6 +188,8 @@ Polnische Ostsee-Freizeit
 
 ![Polen](/images/Leiste_Polen.jpg)
 
+[Einladung Polenfreizeit 2026](pdf/EinladungPolen2026.pdf)
+
 [Einladung Polenfreizeit 2024](pdf/Ostseefreizeit2025.pdf)
 
 [Einladung Polenfreizeit 2024](pdf/EinladungPolen24.pdf)
