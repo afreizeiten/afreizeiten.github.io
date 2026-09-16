@@ -10,7 +10,7 @@ title: Termine
 
 Winterfreizeit auf der Freusburg 2026/27
 
-![Winterfreizeit Freusburg Bilder](/images/Freusburg.png) 
+![Winterfreizeit Freusburg Bilder](/images/Bildleiste_Freusburg.png) 
 
 [Silvesterfreizeit 26_27 Freusburg](pdf/Silvester-Freizeit_2026_27_Freusburg(1).pdf)
 
