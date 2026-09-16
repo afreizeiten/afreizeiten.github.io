@@ -20,7 +20,7 @@ Freizeit vom Selbsthilfe Freizeitwerk e.V.
 
 21.06.2027 bis 03.07.2027 
 
-Sommerfreizeit 2024 in Grömitz
+Sommerfreizeit 2027 in Grömitz
 
 ![Sommerfreizeit Grömitz Bilder](/images/Groemitz_Leiste.png)
 
