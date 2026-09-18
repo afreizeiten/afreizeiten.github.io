@@ -64,14 +64,13 @@ Freizeit von Gerburg
 
 29.12.2026 – 01.01.2027 
 
-Jahreswechsel für Weggefährten aus allen A-Gruppen
+ Jahreswechsel für Weggefährten aus allen A-Gruppen
 
 ![Pfrondorfer Jahreswechsel Schorndorf Bilder](/images/Bildleiste_A-Freizeiten_Schongau.png)
 
-[Pfrondorfer Jahreswechsel 26/27 in Schorndorf](pdf/2026_Entwurf Flyer_Version_anonyme.pdf)
+[Pfrondorfer Jahreswechsel 26/27 in Schorndorf](pdf/2026_Entwurf_Flyer_Version_anonyme.pdf)
 
 Mit den 12 Schritten durchs Jahr mit Ruth, Brigitte, Christa und Christoph
-
 
 ------------------------------------------------------------------------------------------------------------------
 
