@@ -78,6 +78,18 @@ Freizeit von Silke und Dietrich
 
 -----------------------------------------------------------------------------------------------------------------
 
+25.03.2027 – 03.04.2027
+
+Osterfreizeit in Bremen
+
+![Leiste Bremen](/images/Leiste_Ostern_neuab10.3.23.jpg)
+
+[Osterfreizeit_2027 Bremen](pdf/Einladung_Ostern_2027Bremen.pdf)
+
+Freizeit von Liane und Maria
+
+-----------------------------------------------------------------------------------------------------------------
+
 21.07.2027 - 31.07.2027  
 
 Sommerfreizeit in Allmannsried
