@@ -36,19 +36,7 @@ Freizeit vom Selbsthilfe Freizeitwerk e.V.
 
 Für privat organisierte Freizeiten übernimmt der Verein keine Haftung. Fragen bitte direkt an die Veranstalter stellen.
 
------------------------------------------------------------------------------------------------------------
-
-08.10.2026 - 17.10.2026
-
-Herbstfreizeit in Bremen
-
-![Bremen](/images/Leiste_Herbst_neuab10.3.23.jpg)
-
-[Herbstfreizeit Bremen 2026](pdf/EinladungHerbst2026.pdf)
-
-Freizeit von Mechtild
-
----------------------------------------------------------------------------------------------------------------
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 27.12.2026 bis 04.01.2027
 
